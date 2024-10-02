@@ -1,1 +1,29 @@
 # Die alte Bergstadt
+
+„Nuff zus“, zum Schloss hinauf, fährt man am besten mit der Bergbahn. Nicht nur, weil die Fahrt ein kleines Erlebnis ist, auf welches sich unsere Touristen meist besonders freuen, sondern auch, weil es zudem noch die steile schmale Straße von der Altstadt hochführend vom Autoverkehr entlastet. Nimmt man sich jedoch die Zeit, den Aufstieg zum Schloss zu Fuß zu bewältigen, ist es fast schon ein Geheimtipp, nicht die ausgetretenen Pfade des Burgweges oder die 314 Stufen des Kurzen Buckels in Angriff zu nehmen, sondern sich den Anblick einiger der wunderschönen Häuser entlang der Neuen Schlossstraße zu gönnen.
+
+Zu kurfürstlichen Zeiten genossen die Bewohner dieser Bergstadt, die alle im Dienste des Pfalzgrafen standen, ganz besondere Privilegien, wie zum Beispiel die Befreiung von Steuern, den Erlass des Brückenzolls oder den freien Handel auf Wochen- und Jahrmärkten. All diese Rechte bezeichnete man als „Burgfreiheit“, wovon heute noch der Name des Gasthauses rechter Hand zum Eingang in den Stückgarten des Schlosses zeugt. Sogar in den Briefen der Liselotte von der Pfalz steht zu lesen, dass sie oft mit den Kindern, die dort lebten, spielte.
+
+Im wahrsten Sinne des Wortes bergab ging es mit den Bewohnern der Bergstadt, als sich die Heidelberger nach der Zerstörung ihrer Stadt im barocken Wiederaufbau mit ihrem Landesherrn, Kurfürst Karl Philipp, derart um die Nutzung der Heiliggeistkirche stritten, dass dieser entnervt Heidelberg den Rücken kehrte und in Mannheim begann, ein großes modernes, dem Geschmack der Zeit und seinen Ansprüchen angemessenes Schloss zu bauen. Hoch gepokert und verloren... Im Laufe der folgenden 100 Jahre begannen die kleinen Häuser so stark zu verfallen, dass man gar von "den armen Leut’ am Berg" sprach. Sogar Johann Wolfgang von Goethe schrieb, dass "hier am Schlossberg Armseligkeit herrschte".
+
+Läuft man nun heute die Neue Schlossstraße hinauf, die zur Zeit des Bergbahnbaus in den 80er-Jahren des 19. Jahrhunderts um den Schlossberg herum gebaut wurde, so ist es nicht mehr nötig, mit den Bewohnern in der Straße Mitgefühl wegen ihrer "ärmlichen Behausungen" zu haben. Wunderschöne Villen sind hier entstanden, die, je weiter man nach oben steigt, ihren Bewohnern einen atemberaubenden Blick auf Heidelberg und die Rheinebene schenken.
+
+## Das Haus Nr. 15
+
+Fast ganz oben, also quasi mit dem Schloss als Nachbar, befindet sich das dem heutigen Busparkplatz gegenüberliegende Haus mit der Nummer 15, erbaut im Jahre 1898 von einem Staatsanwalt namens Scheuermann.
+
+Dreißig Jahre später wurde das Anwesen von der Familie Buddensiek erworben, in deren Besitz es sich bis zum heutigen Tag befindet. In einem der vielen Räume des Hauses mit einem wunderbaren alten Kamin und direktem Blick auf die Altstadt, wohnte nach dem Zweiten Weltkrieg Dr. Paul Dahmann. Er war derjenige, der im März 1945, als die Amerikaner am nördlichen Neckarufer standen, nachdem die Wehrmacht alle Brücken gesprengt hatte, mit einem Boot und einer weißen Fahne als Parlamentär der Stadt über den Neckar ruderte, um die Kapitulation Heidelbergs zu überbringen. Wie bei so vielen anderen Heidelbergern wurde auch das Haus der Buddensieks beschlagnahmt und erst 1955 vollständig an die Familie zurückgegeben. Noch im gleichen Jahr mietete Dr. Paul Dahmann bei Buddensieks eine Wohnung mit jenem Zimmer an, in dem er bis zu seinem Tode im Jahre 1979 wohnen sollte, und von welchem er täglich auf „sein“ Heidelberg blicken konnte.
+
+Klaus Buddensiek, ein Ur-Heidelberger durch und durch, der in dem Haus in der Neuen Schlossstraße aufgewachsen ist, richtete dort im Jahre 1970 sein Büro für eine Autovermietung und einen Abschleppdienst ein. Kaum ein Heidelberger, der den Wagen mit dem Buddensiek-Schriftzug nicht kennt!
+
+*Klaus Buddensiek aud dem Heidelberger Marktplatz, 1978*
+
+*Das Buddensiek-Haus in der Neuen Schlossstraße 19 befindet sich in bester Nachbarschaft zur weltberühmten Schlossruine.*
+
+Unzählige Kunden waren es, die er mit der Autovermietung zur größten Zufriedenheit bedienen konnte, genauso viele andere gab es aber auch, deren Freude sich in Grenzen hielt, machten sie seine Bekanntschaft doch nur, um ihr abgeschlepptes Automobil aus seinem Autohof, damals noch beim Betriebshof am Kirchheimer Weg, auszulösen. Oft erforderte es Geschick, eine offensichtlich unendliche Geduld und innere Ruhe, die anderen meist nur nach der Einnahme von Hektolitern an Gute-Nacht-Tee vergönnt ist, um den zornigen Abholern dieser Autos freundlich zu begegnen.
+
+Im Sommer des Jahres 1987 wurden die Dienste von Klaus Buddensiek wieder einmal benötigt, als auf dem Parkplatz hinter dem Lux-Kino in der Theaterstraße ein Mercedes-Benz der gehobenen Klasse auf einem Parkplatz für Verkehrsteilnehmer mit Mobilitätseinschränkung (früher sagte man Behindertenparkplatz) fälschlicherweise abgestellt war. Selbstverständlich musste der Wagen abgeschleppt werden, und es war nur eine Frage der Zeit, wann der Besitzer erscheinen würde, um sein Auto „freizukaufen“.
+
+Noch in der gleichen Nacht fuhr ein Taxi vor, dem kein Geringerer als Boris Becker entstieg. Freundlich grüßte er, erkundigte sich, ob sein Wagen denn hier gelandet sei und ob er ihn gleich wieder mitnehmen könne. Selbstverständlich könne er das, wenn er die (zur damaligen Zeit stattliche) Summe von 70,00 DM bezahle. Schnell war die finanzielle Transaktion erledigt und der junge Tennisstar, der es in diesem Sommer in Wimbledon zum Leidwesen aller mitfiebernden Kurpfälzer nicht so weit gebracht hatte, wie die Jahre zuvor, wieder verschwunden.
+
+Trockener Kommentar von Klaus Buddensiek: „Hätt' er net so behindert gespielt, wär’ er a net abgeschleppt worden...!“
