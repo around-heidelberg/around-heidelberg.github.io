@@ -1,27 +1,27 @@
-# Содержание
+# Inhaltsverzeichnis
 
-[Предисловие](./vorwort.md)
+[Vorwort](./vorwort.md)
 
-[Гейдельберг в Средневековье и Ренессансе. Историческое введение](./einfuehrung.md)
+[Heidelberg in Mittelalter und Renaissance. Zur historischen Einführung](./einfuehrung.md)
 
-1. [Хандшусхайм как деревня каролингской эпохи](./handschuhsheim.md)
+1. [Handschuhsheim als Dorf der Karolingerzeit](./handschuhsheim.md)
 
-2. [Гора Хайлигенберг и монастырь Лорш с раннего Средневековья](./heiligenberg.md)
+2. [Der Heiligenberg und das Kloster Lorsch seit dem frühen Mittelalter](./heiligenberg.md)
 
-3. [Верхний замок на Молькенкуре](./molkenkur.md)
+3. [Die obere Burg auf der Molkenkur](./molkenkur.md)
 
-4. [Старый город и его укрепления в Высоком Средневековье](./altstadt.md)
+4. [Die Altstadt und ihre hochmittelalterlichen Befestigungen](./altstadt.md)
 
-5. [Позднесредневековое расширение города на запад](./erweiterung.md)
+5. [Die spätmittelalterliche Stadterweiterung nach Westen](./erweiterung.md)
 
-6. [Замок — от крепости к резиденции](./schloss.md)
+6. [Das Schloss - von der Burg zur Residenz](./schloss.md)
 
-7. [Монастырь Святого Духа и бывшие монастыри в Старом городе](./kloester.md)
+7. [Das Heiliggeiststift und die ehemaligen Klöster in der Altstadt](./kloester.md)
 
-8. [Власть, двор и дворянство в городе](./adel.md)
+8. [Herrschaft, Hof und Adel in der Stadt](./adel.md)
 
-9. [Начало Гейдельбергского университета и конец еврейской общины](./uni.md)
+9. [Die Anfänge der Heidelberger Universität - und das Ende der jüdischen Gemeinde](./uni.md)
 
-10. [Торговцы, ремесленники, члены совета — городская община](./gemeinde.md)
+10. [Händler, Handwerker, Ratsleute - die Bürgergemeinde](./gemeinde.md)
 
-[К дальнейшему изучению](./weiterlesen.md)
+[Zum Weiterlesen](./weiterlesen.md)
