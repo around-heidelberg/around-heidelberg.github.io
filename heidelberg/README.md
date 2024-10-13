@@ -17,3 +17,7 @@
 * Weststadt
 * Wieblingen
 * Ziegelhausen
+
+## Прочие районы вокруг города
+
+* [Heiligenberg](./heiligenberg/README.md)

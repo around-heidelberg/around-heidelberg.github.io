@@ -25,6 +25,7 @@ Mit dem Kloster Lorsch ist auch der wichtigste Bezugspunkt genannt, der für die
 im Jahr 1803, als die rechtsrheinischen Gebiete mit Mannheim und Heidelberg abgetreten wurden, gehörte Handschuhsheim zum Großherzogtum Baden. 
 
 > **Der Lorscher Codex**
+>
 > Der Lorscher Codex (lateinisch »Codex Laureshamensis«) ist eine Art Güterverzeichnis des Lorscher Klosterbesitzes, das Ende des 12. Jahrhunderts entstand. Darin sind neben einer Klosterchronik und einem Zinsregister mehr als 3800 Urkundenabschriften zusammengetragen, welche die Besitzungen (Äcker, Wiesen, Wälder, Mühlen, Leibeigene etc.) der Reichsabtei dokumentieren. Meist handelte es Sich um Schenkungen kleinerer und größerer Grundbesitzer, die einen Teil ihres Besitzes zur Sicherung Ihres Seelenheils an das Kloster und damit an den heiligen Nazarius übertragen hatten. Ab 767 bis in die 880er Jahre erhielt Lorsch mehr als 100 Schenkungen pro Jahr, wobei sich die Besitzungen der Reichsabtei vor allem entlang der heutigen Bergstraße (Heppenheim, Weinheim, Wiesloch etc.), im Worms- und Speyergau, im Lobdengau sowie bis in den südlichen Odenwald finden. Für Handschuhsheim lässt sich in der Zeit zwischen 765 und 900 mit mehr als 120 eine besonders hohe Zahl an Schenkungen an das Lorscher Kloster nachweisen, die Präsenz und Einfluss des Klosters in diesem Gebiet eindrucksvoll belegen.
 > Der Lorscher Codex stellt ein besonders wertvolles Quellenzeugnis dar, da fast alle Originale der frühmittelalterlichen Urkunden heute verloren sind. Zugleich finden hier auch zahlreiche Heidelberger Stadtteile wie Neuenheim (765), Rohrbach (766), Kirchheim (767), Wieblingen (767) und Bergheim (769) ihre erste urkundliche Erwähnung. 
 
@@ -46,7 +47,8 @@ Um 1200 wurde das Langhaus zu einer dreischiffigen Basilika erweitert.
 
 *Grundriss von St. Vitus*
 
-> Der heilige Nazarius
+> **Der heilige Nazarius**
+>
 > Der heilige Nazarius, Orslorben um n304, war wohl ein römischer Soldat, der in Gallien, Italien und in Trier wirkte und während der Christenverfolgung des römischen Kaisers Diokletian zusammen mit seinem Begleiter Celsus den Märtyrertod erlitt. Seine Gebeine wurden von keinem Geringeren als Bischof Ambrosius von Mailand, einem der vier Kirchenväter der Spätantike, entdeckt und in die Mailänder Apostelkirche vor der Porta Romana, die dann den Namen San Nazaro Maggiore trug, überführt. Von Mailand aus verbreitete sich die Verehrung des Heiligen rasch. Bald besaßen zahlreiche Kirchen in Italien (Nola, Brescia, Ravenna, Rom), Byzanz, Afrika und Frankreich Reliquien des heiligen Nazarius. Im Jahr 765 wurden seine Gebeine nach Lorsch überführt, worauf zahlreiche Nazariuskirchen entlang der Bergstraße entstanden. Erst ab dem 12. Jahrhundert ist ein Rückgang der Nazariusverehrung zu verzeichnen. 
 
 *Fresko des heiligen Jakobus aus dem 15. Jahrhundert in St. Vitus*
@@ -61,6 +63,7 @@ In der **Vorhalle** sehen wir die Säulen des romanischen Baus, die rechter Hand
 Wir wenden uns nun von der Vorhalle aus dem **alten Chor** zu. Dabei kommen wir an der Ostwand an Stufen vorbei, die ursprünglich in die Gruft führten. Diese befindet sich unterhalb der ehemaligen Sakristei, die heute zum Besprechungszimmer umfunktioniert ist. Die Gruft, die oft irrtümlich als Krypta gedeutet und deren Zugang im 14. Jahrhundert vermauert wurde, diente als Begräbnisstätte des Adelsgeschlechts der Handschuhsheimer. Dort steht heute noch ein Steinsarkophag aus rotem Sandstein, der wohl im 11. Jahrhundert entstand. Der Zugang zur Gruft, der von der Ostwand des alten Chors aus erfolgt, ist zwar inzwischen wieder freigeräumt, aber nicht für die Öffentlichkeit zugänglich. Der Chor der gotischen Kirche wurde zuletzt 1980 renoviert.
 
 > **Herren von Handschuhsheim** 
+>
 > Zahlreiche Denkmäler aus Spätgotik und Spätrenaissance, die in und an der Kirche St. Vitus angebracht sind, erinnern an das bedeutende Adelsgeschlecht der Handschuhsheimer. Ab dem 12. Jahrhundert standen die Handschuhsheimer als edle Herren im Dienst der Schauenburger, die von der Reichsabtei Lorsch mit der Herrschaft über den ganzen Lobdengau belehnt worden und dabei unteranderem auch für die Klöster auf dem Heiligenberg zuständig waren. Als erste Vertreter des Geschlechts sind im Lorscher Codex für die Jahre 1130, 1148 und 1165 die Brüder Ingram und Rumhard von Handschuhsheim urkundlich bezeugt. Eine zweite Linie dieses Adelsgeschlechts wird durch die - Brüder Swigger und Suiger begründet, die ab 1206 urkundlich belegt sind. Ob die beiden Linien über Verwandtschaftsbeziehungen miteinander verknüpft sind, kann nicht mehr eindeutig nachvollzogen werden. Sicher ist jedoch, dass von der zweiten Linie das kurpfälzische Adelsgeschlecht der Handschusheimer abstammt, das erst im Jahr 1600 ausstarb. 
 
 Von besonderer Bedeutung sind hier zahlreiche **Grabdenkmäler** **[5]** aus dem 16./17. Jahrhundert, die an die Herren von Handschuhsheim erinnern. Auf der rechten Seite sehen wir
@@ -85,6 +88,7 @@ Wappenfeld lautet in Übersetzung:
 *Grabplatte Heinrichs von Handschuhsheim in St. Vitus*
 
 > **Wappen der Handschuhsheimer**
+>
 > Das Wappen der Handschuhsheimer, ein silberner Handschuh im blauen Feld, an dessen unterem Rand sich eine Bommel befindet, wird uns während dieser Themenwanderung an zahlreichen Wohnhäusern und Geschäften begegnen und scheint heute sozusagen zu einem identitätsstiftenden Symbol der Handschuhsheimer Bürger geworden zu sein.
 
 *Grabdenkmal Johanns von Ingelheim und seiner Frau Margareth von Handschuhsheim in St. Vitus*
@@ -120,5 +124,6 @@ Am Herrenhaus der Tiefburg, genau gegenüber des Eingangstors, wurde vom Stadtte
 Während das späte Mittelalter besonders in Gestalt der Tiefburg bis heute das Ortsbild Handschuhsheims prägt, sind die Überreste der früheren Jahrhunderte — wie unser Rundgang gezeigt hat - schwieriger zu entdecken. Ohne die große Bedeutung der karolingischen Reichsabtei Lorsch für das frühmittelalterliche Dorf Handschuhsheim aber ist seine spätere Entwicklung nicht zu verstehen. Dies gilt auch für die nächste Themenwanderung, die zu den Klöstern auf dem Heiligenberg führt. 
 
 > **Zur Autorin**
+>
 > Jr. Julia Becker arbeitet seit 2011 am Historischen Seminar der Universität Heidelberg in einen Forschungsprojekt über das karolingische Kloster Lorsch. 
 
