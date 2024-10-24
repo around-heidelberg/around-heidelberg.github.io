@@ -113,7 +113,7 @@
     {
       "type": "Feature",
       "properties": {
-        "secret": "01"
+        "secret": "01",
         "name": "Лица с монетами — Для защиты Оберрейнского банка"
       },
       "geometry": {
