@@ -26,7 +26,7 @@
 
 11. Geheimnis: [Initialen — In Heidelberg war er beliebt](./initialen.md)
 
-12. Geheimnis: [Einschusslöcher — Nach dem Angriff notdürftig geflickt](./einschussloecher.md)
+12. Geheimnis: [Einschlaglöcher — Nach dem Angriff notdürftig geflickt](./einschussloecher.md)
 
 13. Geheimnis: [Komet — Viel Lärm um (fast) nichts](./komet.md)
 
@@ -74,7 +74,7 @@
 
 35. Geheimnis: [Pferdchen — Hoch zu Ross und hoch auf dem Dach](./pferdchen.md)
 
-36. Geheimnis: [Teilkisten — Das Wasser sprudelte nicht immer](./teilkisten.md)
+36. Geheimnis: [Teilkästen — Das Wasser sprudelte nicht immer](./teilkisten.md)
 
 37. Geheimnis: [Falscher Reichsadler — Blick in die entgegengesetzte Richtung](./reichsadler.md)
 
@@ -106,4 +106,3 @@
 
 [Quellen, Literatur, Bildnachweis](./quellen.md)
 
-[Stadtplan mit den Geheimnissen](./stadtplan.md)

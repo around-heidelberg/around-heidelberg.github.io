@@ -1,0 +1,31 @@
+# Komet
+
+## Viel Lärm um (fast) nichts
+
+*An Heidelbergs Himmel steht immer ein Komet auf dem Dach der Universitätsbibliothek*
+
+Der Erwerb von Wissen in der Universitätsbibliothek Heidelberg steht im wahrsten Sinne des Wortes unter einem guten – wenn auch einst sehr gefürchteten – Stern. Genauer: unter einem guten – wenn auch einst sehr gefürchteten – Kometen. Ganz oben auf dem Schmuckgiebel des prachtvollen Gebäudes schwebt nämlich wie ein Siegeszeichen ein Komet aus Eisen. Und hinter diesem dinglichen Symbol steckt eine ausgesprochen aufregende Geschichte, die der Heidelberger Mediziner und Stadtkenner Dr. Dieter Jung ausführlich recherchiert hat.
+
+„Hier in Heidelberg hat ein ganz berühmter Sternenforscher gewirkt, Max Wolf“, erzählt er. Max, der mit vollem Namen Maximilian Franz Joseph Cornelius Wolf hieß und von 1863 bis 1932 lebte, hatte in Heidelberg studiert und wurde hier auch promoviert. Seit 1896 hatte er einen Lehrstuhl für Astronomie inne, auf dem Königstuhl führte er eine große Sternwarte und: Er entdeckte die Himmelsfotografie. „Er hat unzählige Aufnahmen hintereinander gemacht und die Platten dann übereinandergelegt. Dadurch konnte er ganz kleine Sternbewegungen, die man mit dem Auge nie hätte sehen können, zum ersten Mal erkennen“, schildert Jung Wolfs Vorgehensweise.
+
+Im September 1909 bemerkte Max Wolf, der im Übrigen 228 Kleinplaneten entdeckt hat, durch seine Himmelsfotografie, dass der berühmte „Halley’sche Komet“ bald wiederkehren würde. Erwartet hatte man den Kometen schon lange: Der britische Astronom Edmond Halley (1656–1742) hatte Anfang des 18. Jahrhunderts vorausgesagt, dass der Komet alle 75 Jahre in Erscheinung treten würde. Nach Halleys Tod erschien er am 13. März 1759 tatsächlich wieder und wurde nach ihm benannt. Die folgende Wiederkehr ereignete sich, wie berechnet, am 16. November 1835.
+
+Unablässig fotografierte Wolf den Himmel und kam am 11. September 1909 beim Sichten seiner Fotoplatten zu dem Schluss, dass der Komet ab März 1910 kommen werde. In sein Tagebuch schrieb er: „Komet Halley früh gefunden und nach Kiel gemeldet [...] große Aufregung gewesen.“ Wolf fotografierte und fotografierte, rechnete, feierte und grübelte. Dass der Komet ab März erscheinen würde, stand für ihn außer Frage. Nun interessierte ihn noch seine Entfernung zur Erde. Und dann war er sich sicher: Am 20. Mai, so seine Berechnungen, würde der Schweif des Halley-Kometen die Erde streifen. Sicher? Wolf rechnete wieder und wieder, doch die Ergebnisse blieben die gleichen. Also verkündete er: „Um 4 Uhr am 20. Mai 1910 wird die Erde den Schweif des Kometen durchqueren. Er ist durch die Störungsaktionen von Jupiter und Saturn von seiner Bahn abgelenkt worden.“
+
+Die Aufregung war groß. Überall wurden Sternwarten gerüstet, Fernrohre angeschafft. Und der Aufregung folgte die Panik. Die Erdachse könnte sich verschieben, die Meere das Land verschlingen, die Erde womöglich ganz verschwinden, so die Befürchtung. Derbritische Physiker und Astronom William Huggins (1824-1910) entdeckte obendrein, dass sich im Schweif von Kometen Kohlenstoff-Stickstoff-Moleküle befinden. Was, fragte sich die erschrockene Welt, würde passieren, wenn der giftige Schweif die Erde streift? Und die Wissenschaft tat nicht viel, um zu beruhigen. Die Menschen könnten ersticken oder vergiftet werden, so die Warnungen. Der französischen Astronom Camille Flammarion (1842-1925) vermutete, dass „das Cyangas die Atmosphäre durchtränken und möglicherweise alles Leben auf dem Planeten auslöschen würde“. Durch die Presse gegangen war in den Jahren zuvor ohnehin die Entwicklung von chemischen Kampfstoffen, die Menschheit hatte Angst vor Giftgas.
+
+Die Sache schaukelte sich immer weiter hoch. In Amerika versuchte ein Mann vier Mal, sich das Leben zu nehmen, um dem Weltuntergang zu entgehen. Erst wollte er sich erschießen, dann entschied er sich für den Sprung vom Dach, als er sich dabei nur verletzte, nicht aber starb, attackierte er sich mit einem Messer, und als auch das nicht fruchtete, sprang er in einen
+Brunnen - was er ebenfalls überlebte, ebenso wie den Weltuntergang, der gar nicht stattfand.
+
+„Ihren Höhepunkt erreichte die Halley-Manie zwischen dem 14. und 22. Mai, als der Komet am nächsten und damit hellsten war“, heißt es dazu in Zeit online. Doch die Erde drehte sich weiter, allenfalls die Scheidungsquote wurde erhöht: Wie das Nachrichtenmagazin Spiegel berichtet, war in einem Dorf nahe des amerikanischen Buffalo für das Ereignis ein Fernrohr angeschafft worden, durch das die Beobachter zwar keinen Kometen, wohl aber ein Liebespaar beim Geschlechtsakt beobachten konnten. Die örtliche Zeitung schrieb, man habe sich entschlossen, „die Suche nach dem himmlischen Objekt aufzugeben und nach irdischen Körpern Ausschau zu halten. Zum Vergnügen aller konnten noch sechs weitere Szenen dieser Art mit dem Fernrohr entdeckt werden“. Das Blatt vermutete, man könne Ehescheidungsprozesse nun wohl nicht mehr ausschließen.
+
+Und in Heidelberg? Wie es um die Scheidungsquote nach dem Ereignis bestellt war, weiß Dieter Jung nicht. Aber er weiß, dass sich manch ein Bürger am Bett festband. Nicht um sich selbst am Fremdgehen zu hindern, sondern um nicht von dem Kometen angesaugt zu werden. „Da hat einer an die Zeitung geschrieben und gemeint, wenn der Komet noch näher käme, werde seine Anziehungskraft größer als die der Erde“, berichtet er schmunzelnd. „Daraufhin haben sich die Leute nachts eine dicke Kette über den Bauch gelegt, damit sie von der Kraft des Kometen nicht angesaugt werden.“ 
+
+Auch das ging gut. Kein Heidelberger wurde vom Kometen aus dem Bett gesaugt. Aber stolz war man schon darauf, dass hier der Mann gewirkt hatte, der das Erscheinen des Kometen vorausgesagt
+hatte. Das gedachte man der Welt mit der Anbringung des Kometen auf dem Dach kundzutun. Und das Lernen der Studenten unter einen guten Kometen zu stellen. Denn als gut erwies er sich ja letztendlich. Und vielleicht signalisiert der Komet auf der Spitze des Giebels auch das: Die Wissenschaft soll akribisch arbeiten. Bevor er seine Erkenntnisse in die Öffentlichkeit trägt, sollte der Akademiker gut überlegen. Sonst passieren vielleicht ganz merkwürdige Dinge.
+
+*Eva-Maria Bast*
+
+## So geht’s zum Kometen:
+
+Er befindet sich ganz oben auf dem Giebel der Universitätsbibliothek. Diese steht an der Plöck. 

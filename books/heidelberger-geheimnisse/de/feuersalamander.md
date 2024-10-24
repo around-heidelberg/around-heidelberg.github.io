@@ -1,0 +1,28 @@
+# Feuersalamander
+
+## Für den Marstall ein Schutz vor Flammen
+
+*Menschliches Gesicht und langer Bart, aber der Körper eines Salamanders: Über Jahrhunderte sollte das Tier Feuer vom Gebäude abhalten.*
+
+Er trägt den Kopf eines greisen Mannes mit langem Bart, doch der Rest seines Körpers sieht eindeutig nach einem Salamander aus: Die kleine Gestalt ist als Relief neben dem Durchfahrtstor des ehemaligen Zeughauses angebracht und beobachtet die Passanten zu ihren Füßen. Es sind vor allem Studenten, die auf dem Weg in die Mensa vorbeikommen, aber auch Touristen, die hier Richtung Neckar spazieren. Und immer wieder einmal steht Kunsthistorikerin Susanne Späinghaus-Monschau darunter und deutet auf den eigenartigen Kerl. 
+
+„Das ist ein Feuersalamander. Er ist dort oben angebracht, um apotropäisch Feuer und alles Böse von den Gebäuden abzuhalten“, erklärt sie. Bei derartigen Abwehrzaubern habe man immer das abgebildet, was gebannt werden sollte. „In diesem Fall hier war es besonders wichtig, dass kein Brand ausbrach. Denn im kurfürstlichen Zeughaus wurden Waffen und Munition aufbewahrt, also feuergefährliche Dinge, bei denen es verheerend gewesen wäre, wenn sie mit Funken oder Flammen in Berührung gekommen wären.“ Der Feuersalamander habe schon immer als hoch magisches Wesen gegolten, von dem man sagte, dass es seine Eier im Feuer ausbrütet und immun gegen Hitze ist. Als Feuerschutz funktionierte der Salamander leider nicht wirklich. Wie der eigentliche Marstallhof, der 1590 unter Johann Casimir als beeindruckender Fachwerkbau entstand, nahm wohl auch der Westflügel Schaden bei den Zerstörungen durch die Franzosen in den Jahren 1689 und 1693. 1829 wurde er dann aufgestockt und verlängert als Erweiterung der Gebäranstalt, die bis 1844 dort untergebracht war.
+
+Bei dem Salamander, der heute die Außenfassade schmückt, handelt es sich aber ohnehin nicht mehr um das Original. Das ursprüngliche halbplastische Relief wurde dort vermutlich kurz
+nach 1510 angebracht, nachdem Kurfürst Ludwig V. (1478-1544) das Zeughaus als ältestes Gebäude des Marstallhofes hatte erbauen lassen. Es war als Lagerhaus für Versorgungsgüter sowie als Lager für Waffen gedacht und musste deshalb besonders geschützt werden - immerhin stand es außerhalb der Stadtmauer am Neckar, der damals noch unmittelbar vor dem Gebäude entlangfloss. „Deshalb sieht der Komplex auch heute noch so trutzig aus mit seinen dicken Mauern und Ecktürmen“, weist Susanne Späinghaus-Monschau auf die Besonderheiten hin. Dank der Nähe zum Wasser konnten Schiffe direkt am Gebäude anlegen. Der Kran, der dem Krahnenplatz seinen Namen gab und dessen Standort heute anhand von Pflastersteinen im Boden festgehalten ist, entlud die Ware oder verfrachtete sie auf die Schiffe.
+
+Ursprünglich bildeten vier Gebäude ein Rechteck rund um den Marstallhof. Am Neckarstaden stand wie heute das kurfürstliche Zeughaus, an das entlang der Schiffgasse der Westflügel mit dem Salamander und entlang der Marstallgasse der Ostflügel anschloss. Auf der Südseite des Geländes war von 1590 bis 1693 der kurfürstliche Marstall zu finden, der dem ganzen Gelände seinen Namen gab.
+
+„An seiner Stelle steht heute das Neue Kollegienhaus, das sich optisch nicht unbedingt harmonisch in den Komplex einfügt, um es vorsichtig auszudrücken“, sagt Susanne Späinghaus-Monschau. Seit Mitte des 20. Jahrhunderts nutzt die Universität die Gebäude. Im Zeughaus sind die Mensa und ein Studentencafe untergebracht, im Ost- und Westflügel hat das Studentenwerk seine Räume und das Neue Kollegienhaus beherbergt neben Instituten und Seminaren der Altertums- und Sprachwissenschaften auch die Abguss-Sammlung des Archäologischen Instituts.
+
+Dass am Westflügel heute überhaupt noch ein Salamander zu sehen ist, verdanken die Heidelberger dem renommierten Heimatforscher Karl Friedrich Ludwig Merz (1908-2003). Fritz Hartmann, der nicht weit entfernt von dem Feuersalamander wohnt, erinnert sich noch genau, wie es dazu kam: „Als 1972 der Westflügel umgebaut wurde, hat man das Innere des Gebäudes komplett entkernt und in kleinere Räume unterteilt. Und auch an der Außenfassade fanden Arbeiten statt, bei denen die Steine ausgebessert wurden. Der Feuersalamander, der damals dort angebracht war, war schon stark verwittert und wäre beinahe komplett zerstört worden und damit in Vergessenheit geraten.“ Ludwig Merz, den Hartmann liebevoll als seinen Ziehvater bezeichnet, bekam Wind von der Sache. „Er kam angelaufen und rief: ‚Seid ihr wahnsinnig geworden? Das ist doch der Schutzpatron des Marstalls‘“, imitiert Hartmann den aufgebrachten Tonfall des Heimatforschers. Daraufhin sei die Platte neu gestaltet und der heutige Salamander angebracht worden. „Wäre Ludwig Merz damals nicht so hinterher gewesen, hätte Heidelberg seinen Feuersalamander verloren und noch vieles andere mehr“, resümiert Hartmann. 
+
+Der Künstler Edzard Hobbing (1909-1974), der in der Stadt mitmehreren Werken vertreten ist, bekam 1974 den Auftrag, nach Fotografien des Originals einen neuen Salamander anzufertigen. Seither schaut das bärtige Tier wieder auf die Passanten herab. 
+
+„Ich finde es irgendwie drollig, dass heute im Marstall keine Pferde mehr gefüttert werden, sondern Studenten. Und die Kinder der Universität werden nach wie vor im Westflügel, also der ehemaligen Gebäranstalt, betreut, in dem heute das Studentenwerk untergebracht ist“, fasst Susanne Späinghaus-Monschau zusammen. Ob der Feuersalamander dabei weiterhin vor Feuer schützt? Vielleicht eher davor, dass das Studium sich hinzieht, bis den Studierenden ein langer Bart wächst. 
+
+*Heike Thissen*
+
+## So geht’s zum Feuersalamander: 
+
+Der Salamander mit Menschengesicht befindet sich vom Krahnenplatz aus gesehen rechts neben der Toreinfahrt zum Marstallhof. 

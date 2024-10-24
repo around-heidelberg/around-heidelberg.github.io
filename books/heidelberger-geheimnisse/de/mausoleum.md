@@ -1,0 +1,23 @@
+# Mausoleum
+
+## Gedenken an ein Brauer-Ehepaar
+
+*Das Mausoleum des Ehepaars Bartholomae überragt alle anderen Grabstätten bei weitem. Doch wer waren die beiden eigentlich?*
+
+Wenn das nicht ein imposantes Grab ist! Wer über den Heidelberger Bergfriedhof spaziert, kann gar nicht anders als verweilen und staunen. Da liegen zwei ägyptische Sphingen aus Bronze zu Füßen einer Steintreppe und bewachen eine schwere Bronzetür. Über ihnen erhebt sich eine Tempelkammer, in deren Innerem eine Figurengruppe aus weißem Marmor zu sehen ist. „Ich staune auch immer wieder, wenn ich hier stehe“, sagt Wolfgang Becker. Und das will etwas heißen, schließlich ist Becker Technischer Betriebsleiter der Heidelberger Friedhöfe. Qua Amtes ist er auch immer wieder im Bereich Litera T unterwegs, in dem sich das Mausoleum befindet. Doch wer hat sich hier für so ein repräsentatives Grab entschieden? Der Nnme BARTHOLOMAE prangt am Giebel. Aber er hilft im Gegensatz zu den vielen anderen berühmten Namen auf dem Bergfriedhof nicht weiter. 
+
+„Das Grab des Ehepaars Bartholomae ist ohne Zweifel das größte und imposanteste hier auf dem Bergfriedhof“, beginnt Becker zu erzählen. Wer genau hinsieht, kann die Bildnisse der beiden Menschen, die hier ihre letzte Ruhe fanden, im Mausoleum entdecken: Dort hängen zwei marmorne Medaillons, die Philipp Bartholomae (1837-1901) auf der linken und seine Frau Sophie auf der rechten Seite zeigen. Die Eheleute blicken sich liebevoll an, so, wie sie es vermutlich auch zu Lebzeiten getan haben. Denn dass die Verbindung zwischen diesen beiden Menschen - zumindest in wirtschaftlicher Hinsicht - eine sehr prosperierende war, daran gibt eskeinen Zweifel.
+
+„Philipp Bartholomae war gebürtiger Heidelberger, der als Bierbrauer nach Amerika gegangen ist. Dort war er so erfolgreich, dass er es zu großem Reichtum gebracht hat“, erklärt Wolfgang Becker. Im Alter hätten sich Philipp und Sophie entschieden, in die Heimat zurückzukehren und den Lebensabend am Neckar zu verbringen. „Als seine über alles geliebte Frau 1898 starb, ließ der Brauer ihr diese Grabanlage bauen und scheute dabei keine Kosten: Er entschied sich für die teuersten Materialien, die es damals auf dem Markt gab.“ Verschiedene Granitarten sind genauso verbaut worden wie echter italienischer Marmor. Bartholomae beauftragte den Weinheimer Architekten Otto Hasslinger mit der Planung für die letzte Ruhestätte seiner Frau, die später auch seine eigene werden sollte. „Die Marmorarbeiten wurden von italienischen Bildhauern ausgeführt, außerdem waren die Granitwerke in Bensheim und eine Erzgießerei in Stuttgart an den Arbeiten beteiligt“, führt der Friedhofsexperte weiter aus.
+
+Als drei Jahre später auch Philipp Bartholomae stirbt, ist das der Chronik der Stadt in ihrer Rubrik über die Verstorbenen einen Eintrag wert: „Ihre Reihe eröffnete am ersten Tage des Jahres Philipp Bartholomä, ein Heidelberger von Geburt, der sich in Amerika durch Geschick und rastlose Arbeit als Bierbrauer ein großes Vermögen erworben, dann, in die Heimat zurückgekehrt, sich an einer besonders schönen Stelle des Molkenkurhügels ein Landhaus erbaut hatte.“ Und weiter ist dort zulesen: „Eine prächtige Begräbnisstätte, die er sich und seiner Frau auf dem Friedhof errichtet, hat nun ihn und seine ihm vor kurzem vorangegangene Gattin zur letzten Ruhe aufgenommen.“
+
+Bartholomae hinterließ der Stadt nicht nur eine Begräbnisstätte, die noch mehr als 100 Jahre nach seinem Tod beeindruckt. Er vermachte ihr auch 50.000 Goldmark, mit denen seine letzte Ruhe gewährleistet und sein Grabmal gepflegt werden sollte. „Das war eigentlich unvorstellbar viel Geld für die damalige Zeit. Leider ist es wegen der anschließenden Inflation ganz schnell verpufft“, kommentiert Becker. Dennoch hege und pflege man das Mausoleum - auch mit Unterstützung der Denkmalstiftung Baden-Württemberg, die zur Sanierung im Jahr 2014 25.000 Euro beisteuerte. Von außen glänzt es seither wieder wie neu. 
+
+„Man kann sich gar nicht vorstellen, dass es im Inneren eher schlicht gehalten ist“, überlegt der Technische Betriebsleiter der Friedhöfe, der als solcher den Schlüssel zu der bronzenen Tür hat und deshalb die Gruft betreten kann. „Die Grabkammer ist wesentlich kleiner, als es das Äußere vermuten lässt. Da stehen eigentlich nur die beiden Särge drin.“ Im Tod aufimmer vereint - etwas anderes hätten sich Philipp und Luise Bartholomae vermutlich nicht vorstellen können.
+
+*Heike Thissen*
+
+## So geht’s zum Mausoleum:
+
+Das Mausoleum des Ehepaars Bartholomae steht im Abschnitt Litera T auf dem Bergfriedhof, Steigerweg 20.

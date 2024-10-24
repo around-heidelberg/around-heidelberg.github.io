@@ -1,0 +1,27 @@
+# Adler-Schild 
+
+## Pfannkuchenglück für Johannes Brahms
+
+*Das Gebäude wird heute anderwertig genutzt, das Schild erinnert immer noch an das Gasthaus, in dem Brahms gern speiste.*
+
+Liebe geht bekanntlich durch den Magen. Das wusste schon der Komponist, Pianist und Dirigent Johannes Brahms (1833–1897). Bei ihm trugen die ausgezeichneten Kochkünste einer Ziegelhauser Köchin einen großen Teil zu seiner tiefen Zuneigung für den Heidelberger Stadtteil bei. Davon erzählt Elizabeth Ehrenfried, die nicht nur Vorsitzende des Ziegelhauser Stadtteilvereins ist, sondern auch eine große Bewunderin von Brahms. Deshalb kennt sie sich mit der Zeit, die er in ihrem Heimatort verweilte, auch sehr gut aus. Sie sagt: „Als Brahms den Sommer 1875 hier in Ziegelhausen verbrachte, ging er jeden Tag im Adler essen. Das war damals ein sehr bekanntes Haus.“ Das Gasthaus selbst gibt es nicht mehr, aber das Wirtshausschild mit dem Adler, das an die Tage erinnert, als Brahms und viele andere die ausgezeichnete Küche genossen, ist noch immer an der Hauswand des Gebäudes zu sehen.
+
+„Brahms war damals auf der Suche nach einer schönen Gegend, um eine schöpferische Pause einzulegen und sich inspirieren zu lassen“, erzählt die ausgebildete Opernsängerin. Vermutlich waren es seine guten Freunde, der Komponist und Dirigent Robert Schumann (1810–1856) und seine Ehefrau, die Pianistin und Komponistin Clara Schumann geb. Wieck (1819–1896), die den damals 42-Jährigen auf die Idee brachten, nach Ziegelhausen zu gehen.
+
+Brahms liebte die Natur, ein Leben ohne Waldspaziergänge hätte er sich nur schwer vorstellen können. „Sie wissen gar nicht, was Sie versäumen, wenn Sie nicht früh um fünf Uhr in den Wald gehen“, soll er einmal zu Eugenie, einer Tochter der Schumanns, gesagt haben. In Ziegelhausen fand er alles, wonach er sich sehnte: „Ich brauche absolute Einsamkeit, nicht sowohl um das mir Mögliche zu leisten, sondern um nur überhaupt an meine Sache zu denken. Das liegt an meinem Naturell“, schrieb er einmal in einem Brief.
+
+Bevor der damals bereits berühmte Komponist diesen Sommer am Neckar verbrachte, war er bereits sechs Mal in Heidelberg gewesen. Doch die Studentenstadt mit ihren vielen Besuchern war ihm zu unruhig und voll. Also bevorzugte er für seine Sommerfrische als Ort Ziegelhausen und als Unterkunft das Landhaus des Kunstmalers und ehemaligen Kammersängers Anton Hannossek (1809-1881), der unter dem Namen „Hanno“ bekannt war. „In Eile willich mitteilen, daß ich ganz reizend in Ziegelhausen bei Heidelberg wohne. [...] Hoffentlich habt Ihr jetzt so schöne Tage wie ich hier am Neckar; dann genießt sie recht - wie ich es auch thue, ich laufe viel herum!“, berichtete Brahms seiner Mutter nach seinem Einzug in dem heutigen Ortsteil. „Das Haus in der Kleingemünder Straße steht heute nicht mehr, es wurde abgerissen“, sagt Elizabeth Ehrenfried bedauernd.
+
+Ein anderes Gebäude, in dem Brahms damals viel Zeit verbrachte, steht aber noch: das ehemalige Gasthaus Adler, gekennzeichnet durch ein entsprechendes Wirtshaus-Schild. Hier kehrte der Komponist gern mittags ein, um sich an der gutbürgerlichen Küche zu stärken. „Und hierzu gibt es die ganz entzückende Geschichte“, erzählt Elizabeth Ehrenfried, „dass die Köchin ihm gern einen Pfannkuchen aus sechs Eiern gebacken hat under davon so begeistert war, dass er ihr einen Walzer komponierte und ihn gleich auf dem Klavier vorspielte.“ Die so mit Dank Bedachte erinnerte sich noch Jahre später an diese ganz besonderen Momente: „Und wenn er spielte, hetmer kei Händg’sehe.“ Die Gäste, die ihm lauschten, wagten wohl kaum zu atmen.
+
+Elizabeth Ehrenfried hat selbst gern die Werke des Komponisten gesungen. Besonders am Herzen liegt ihr noch heute das bewegende Liebeslied Trennung. Die erste Strophe beginnt mit den Worten: Da unten im Tale / Läuft's Wasser so trüb / Und i kann dir's net sagen, / I hab‘ di so lieb. Die letzte Strophe lautet: Für die Zeit, wo du g’liebt mi hast, / Da dank i dir schön / Und i wünsch‘, daß dir's anderswo / Besser mag gehn. „Ich hab mir beim Singen immer gedacht, dass Brahms dabei bestimmt den Neckar im Sinn hatte, das würde so gut passen“, schwärmt die Opernsängerin.
+
+Etliche Lieder mit Klavierbegleitung, Stücke für Klavier- und Kammermusik aus jenem Sommer zeugen davon, dass Brahms‘ Erwartungen an die erholsame Wirkung der Landschaft und des Waldes nicht zu hoch gegriffen waren. Doch Brahms komponierte nicht nur, er verbrachte auch Zeit mit Freunden. „Sie sollten sich [...] ein Stück ‚Welt‘ ansehen - ich meine natürlich das Stück, auf dem Ziegelhausen steht“, schrieb er beispielsweise an eine seiner Schülerinnen. Und sie folgten dieser Aufforderung gern: Hofkapellmeister, Dirigenten und Verlegerkamen aufeinen Besuch vorbei, Opernsängerinnen sangen in Ziegelhausen seine Lieder, und auch seine Vertraute Clara Schumann ließ es sich nicht nehmen, ihm mit ihren Töchtern einen Besuch abzustatten. Dabei sprachen sie seine neuesten Werke durch und musizierten zusammen.
+
+„Brahms blieb insgesamt vier Monate und reiste Mitte September wieder zurück nach Wien“, erzählt Elizabeth Ehrenfried. Einen ganzen Sommer lang war er unter dem Schild mit dem Adler einund ausgegangen. Und das macht Elizabeth Ehrenfried noch nach mehr als 140 Jahre stolz. 
+
+*Heike Thissen* 
+
+## So geht’s zum Adler-Schild:
+
+Das ehemalige Gasthaus Adler, in dem Brahms seinen Sechs-Eier-Pfannkuchen genoss, steht in der Kleingemünder Straße in Ziegelhausen. 

@@ -1,0 +1,23 @@
+# Hausnummer
+
+## Der lange Weg zur eigenen Adresse
+
+*Diese Ziffern künden von alten Zeiten - sie dienten früher als Hausnummern.*
+
+Die dreistellige Zahl ist mittlerweile sehr verwaschen und man muss sich anstrengen, um sie zu entziffern. Doch wenn man es weiß, erkennt man esganz deutlich: No. 565 steht am Türsturz geschrieben. Was hat es mit dieser Nummer auf sich? Eine Hausnummer? Dafür scheint die Zahl etwas zu hoch zu sein, zumal das Gebäude, an dem sie sich befindet, in einem kleinen Gässchen steht und seine Adresse auch klar ist: Floringasse 3. „Doch“, sagt Isabel Ritter-Göhringer, „das ist eine alte Hausnummer. Und zwar aus der Zeit, in der es noch keine Nummerierungen nach Straßennamen gab.“
+
+Nachdem in den 1770er-Jahren die Feldgüter auf der Gemarkung Heidelbergs vermessen worden waren, begannen Johann Philipp Haas und Carl Wiedinger 1773 damit, die Häuser und Grundstücke der Stadt zu erfassen, eine Arbeit, die bis 1774 dauern sollte. Bei dieser Vermessung wurden die Grundstücke nummeriert und das Heidelberger Lagerbuch in 5 Bänden erstellt.
+
+Besonders interessant ist Band 1, in dem die Einträge in vier Litera-Bezirken erfolgen: Die südliche Vorstadt war das 1. Quartier, das mit dem Buchstaben A gekennzeichnet wurde. Das 2. Quartier, die nördliche Vorstadt, erhielt das B, die südliche Altstadt als 3. Quartier das C und die nördliche Altstadt als 4. Quartier den Buchstaben D. Die Hauptstraße und die Grabengasse bildeten die Grenze zwischen den vier Bezirken. Die Grundstücke waren in dem Lagerbuch ganz genau beschrieben: mit ihrer Größe, vermessen in Rute, Schuh, Zoll und Linie. Das Anwesen wurde beschrieben und der Besitzer genannt. Die Stadt war nun von A bis D und in Straßen aufgeteilt, denen noch eine Nummer beigegeben war. Im ersten Heidelberger Adressbuch von 1839 lautet die erste Adresse: „Aab, Ludwig, Kaufmann, Frau, Neckarstraße, Lit B Nro. 160.“ Der Kaufmann Ludwig Aab und seine Frau lebten demnach in einem Haus in der Neckarstraße im Bezirk B mit der Nummer 160.
+
+1856 wurden die Häuser dann nicht mehr innerhalb der Bezirke, sondern nach Straßen nummeriert, und zwar von Westen nach Osten und von Norden nach Süden. Das Heidelberger Adressbuch für 1856 vermerkte: „Nach der neuen Numerierung der Häuser befinden sich fast in allen Straßen der Stadt auf der einen Seite die graden, auf der anderen Seite die ungraden Häuser-Nummern. In den Straßen, die nur aus einer Häuserreihe bestehen, fehlen daher die graden oder ungraden Nummern.“ 1877/78 mussten sich die Bewohner der Hauptstraße aber nochmal umgewöhnen, als man die Trennung zwischen dem westlichen und dem östlichen Teil aufhob. Im Adressbuch steht: „Noch ist zu bemerken, daß normativ sämmtliche Hausnummern von Westen nach Osten und von Norden nach Süden, die ungeraden links, die geraden rechts ziehen.“ Die Unterteilung in gerade und ungerade Hausnummern nach StraBenseiten ist eine typische Form der Nummerierung. Sie wurde 1805 in Paris eingeführt. Aufder rechten Straßenseite befinden sich die geraden und auf der linken Seite die ungeraden Nummern. 
+
+Doch zurück nach Heidelberg und zur Hausnummer in der Florinsgasse: Die Gästeführerin erklärt: „Die erste Nummerierung erfolgte gewissermaßen im Kreis. Den Heidelbergern hat das aber gar nicht gefallen, teilweise haben sie ihre Nummer nur sehr schlampig aufgemalt.“ Der Augsburger Wilfried Matzke, dortiger Leiter des Geodatenamts und Experte für Hausnummern - in der Augsburger Fuggerei gibt es die weltweit ältesten Hausnummern aus dem Jahr 1519 - hat für den Widerstand der Bevölkerung eine Erklärung: „Die stadtweiten Nummerierungen führte man nicht ein, um den Menschen die Orientierung zu erleichtern“, sagt er. „Vielmehr sollte der staatliche Zugriff auf die Bewohner verbessert werden, insbesondere für Steuereintreiber, Polizei und Rekrutierungsdienste.“ Er zitiert: „Die Hausnummern müssen Bettler bekämpfen, sowie liederliche und gefährliche Leute ausfindigmachen.“ Kein Wunder, dass die Bürger sich durch die Hausnummern kontrolliert und ihrer Freiheit beraubt fühlten und ihre Wut an den Nummerierungen ausließen. „Man hat sie immer wieder beschmiert, zerkratzt oder entfernt.“
+
+Die damaligen Bewohner der Floringasse 3 hatten aber anscheinend nichts gegen die Hausnummer, wurde sie offensichtlich keinesfalls eilig hingeschmiert - geschweige denn schnellstmöglich wieder entfernt.
+
+*Eva-Maria Bast*
+
+## So geht’s zur Hausnummer:
+
+Die alte Hausnummer befindet sich am Türsturz der Floringasse 3. 

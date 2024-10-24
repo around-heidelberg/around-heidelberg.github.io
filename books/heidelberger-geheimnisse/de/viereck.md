@@ -1,0 +1,25 @@
+# Schwarzblaues Viereck
+
+## Das Pulverfass über dem Neckar
+
+*Das dunkle gepflasterte Rechteck auf der Alten Brücke birgt ein Geheimnis.*
+
+1849! Was für ein unruhiges Jahr! Im Norden bricht der DeutschDänische Kriegum Schleswigund Holstein wieder aus, in Ungarn tobt die Revolution und in Frankfurt beschließt die Nationalversammlung am 28. März die Paulskirchenverfassung und wählt König Friedrich Wilhelm IV. von Preußen (1795-1861) zum Erbkaiser, doch er lehnt am 28. April ab, weil er die Kaiserkrone nur von „Seinesgleichen“ annehmen möchte. Damit ist auch die Zustimmung zur Reichsverfassung gefährdet, die außer Preußen auch die meisten anderen Reichsfürsten ablehnen.
+
+Obwohl Baden ihr zustimmt, nimmt die Revolution dort Fahrt auf. Ihr Ziel: aus dem Großherzogtum Baden eine Republik oder eine konstitutionelle Demokratie zu machen. Zunächst ist sie
+durchaus erfolgreich. Die am 12. Mai in Offenburg zusammengetretenen Delegierten der Volksvereine verabschieden tags darauf die „Offenburger Beschlüsse“, in denen sie unter anderem die Wahl einer Verfassunggebenden Versammlung für Baden fordern. Gleichzeitig kommt es in der Bundesfestung Rastatt und in Karlsruhe zu Soldatenaufständen. All dies führt dazu, dass Großherzog Leopold und in der Folge auch seine Minister fliehen: Baden hat keine Regierung mehr. Der Karlsruher Gemeinderat fordert den Landesausschuss der Volksvereine auf, nach Karlsruhe zukommen und die Regierung zu übernehmen, dieser überträgt am 1. Juni die Regierungsgewalt an eine provisorische Regierung.
+
+Doch die Gegenrevolution hat sich bereits unter Führung Preußens formiert, preußische Truppen hatten schon im Mai Aufstände von Befürwortern der Reichsverfassung in Breslau und in Dresden niedergeschlagen. Und Großherzog Leopold bat ebenfalls um Truppenhilfe gegen die Revolutionäre. Diese zogen durch das Großherzogtum und erreichten auch Heidelberg. Und mit eben diesem Umstand hat ein kleines gepflastertes, schwarzblaues Viereck zu tun, das heute noch auf der Alten Brücke zu sehen ist. Der Mediziner und Stadtkenner Dr. Dieter Jung kennt die Geschichte, deren Hauptakt auf den 20. und 21. Juni 1849 datiert ist. Da nämlich halten die badischen Revolutionäre die Brücke besetzt. Tags darauf rücken - je nach Quelle - 200 bis 400 preußische Soldaten vor. An der Brücke liefert man sich harte Gefechte, der Augenzeuge Gottfried Keller (1819-1890) berichtet von Schießereien und dass „kanoniert und gepülvert“ worden sei. Weiter schreibt er: „Sie schossen in unsere Gassen herein, über 2000 Schritt weitund ein Soldat fiel tot um, nicht weit von mir auf der Brücke [...]. Die Preußen haben halt auch Scharfschützen.“
+
+Und nun kommt die viereckige Pflasterung ins Spiel, die im Grunde ein Loch verschließt oder besser: die Stelle markiert, an der sich das Loch einst befunden hat. Das nämlich haben die revolutionären Truppen in die Brücke eingelassen, um die anrückenden Preußen daran zu hindern, in die Stadt zu gelangen. „Das gingganz einfach“, sagt Jung. „Sie haben ein kleines Pulverfass hineingetan und eine Zündschnur gelegt, die bis zum Brückentor führte.“ Im Notfall hätte die Ladung in die Luft gejagt und die Brücke gesprengt werden können. Derweil hatten die Heidelberger große Angst. Heimatforscher Ludwig Merz (1908-2003) schreibt über die denkwürdigen Tage: „Der Kampf gegen die feindliche Übermacht erschien vielen Bürgern aussichtslos und manche hatten die Hoffnung, die preußischen Soldaten würden bald einrücken.“ Doch es ging nochmal gut - zumindest wurde die Brücke damals nicht gesprengt und auch die Stadt wurde verschont, nachdem die Revolutionäre am 21. Juni bei Waghäusel eine schwere Niederlage hatten einstecken müssen und schließlich auch aus Heidelberg abzogen. Die Preußen allerdings kamen: Sie rückten am 23. Juniein und blieben zwei Jahre lang.
+
+96 Jahre später, am 29. März 1945, wurde die Brücke doch noch gesprengt, als die Deutschen gegen Ende des Zweiten Weltkriegs den näherrückenden Amerikanern den Weg abschneiden wollten. Die „Sollbruchstelle aus den Revolutionsjahren“, wie Dieter Jung es nennt, wurde dafür aber nicht verwendet. „Die Wehrmacht hat die Brücke weiter unten gesprengt. Und
+deswegen ist die Stelle, an der sich einst das Pulverfass befunden hat, noch erhalten“, erklärt er.
+
+Doch es gibt keinen Grund zur Beunruhigung: Das Fässchen wurde längst entsorgt. Einer Legende nach haben mutige Bürger die Sprengung der Brücke im Juni 1849 verhindert, indem sie sich das Pulverfässchen kurzerhand schnappten und es in den Neckar schmissen. Da der Feuerspritzenspezialist Carl Metz (1818-1877) später aber eine Urkunde für die Entschärfung des Sprengsatzes bekam, ist der Wahrheitsgehalt der Legende wohl eher gering. Fakt ist jedoch: Die Sprengladung ist entschärft. In Heidelberg muss also keiner auf einem Pulverfass sitzen - geschweige denn auf einem solchen spazieren gehen. 
+
+*Eva-Maria Bast* 
+
+## So geht’s zum schwarzblauen Viereck:
+
+Es befindet sich auf der Alten Brücke auf Höhe der Statue für Kurfürst Carl Theodor. 

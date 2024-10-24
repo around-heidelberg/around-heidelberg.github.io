@@ -1,0 +1,29 @@
+# Gedenkstein
+
+## Eine unglaubliche Schießleistung
+
+*Ein Gedenkstein mit einer merkwürdigen Inschrift kündet von einer großartigen militärischen Leistung.* 
+
+Er kündet von einer großartigen militärischen Leistung und wird doch so wenig beachtet: Die Konkurrenz für den Gedenkstein im Stückgarten des Heidelberger Schlosses ist einfach zu groß. Der atemberaubende Ausblick auf die Stadt und das Schloss, der Dicke Turm und das Elisabethentor wecken das Interesse der Besucher wesentlich mehr als die unauffällige Tafel aus rotem Sandstein. Daran ändert auch ihre Inschrift nichts, die in knappen Worten erklärt, welch unglaubliches Schauspiel am 22. Januar 1681 beim Schloss zu sehen war: ANNO MDCLXXXI/ DEN XXI. JANVARI/ VONSCHLOSAVFDISENORT / HAT WIEDER ALLES HOFFEN / AVS STÜCKEN CHVRFÜRST CARL / MIT KUGEL KUGEL TROFFEN.
+
+Anette Senn-Schmottlach, die sich in der Schlossruine hervorragend auskennt, geht vor allem mit Kindern gern hierher, um ihnen von dem Gedenkstein und der Geschichte zu erzählen, die sich hinter ihm verbirgt. „Die sind dann immer ganz beeindruckt“, sagt sie. Und das ist kein Wunder. Denn die Inschrift besagt nichts anderes, als dass es Kurfürst Karl II. von der Pfalz (1651-1685) im Januar 1681 gelang, aus zwei Kanonen je eine Kugel gleichzeitig so abzufeuern, dass sie sich in ihrer Flugbahn trafen und zerbarsten. „Ihm ist damit das schier Unmögliche gelungen“, bewundert die Gästeführerin den Erfolg.
+
+Allerdings vollbrachte Karl die Meisterleistung nicht im Stückgarten, obwohl auch in der Inschrift von „Stücken“ die Rede ist. Der Begriff bezeichnet ein Geschütz, das einer Kanone ähnelt. Die Westterrasse des Schlosses, die heute nach diesen Waffen benannt ist, war dazu da, die Kanonen aufzustellen und abzufeuern und damit das Schloss gegen Angriffe von Westen zu verteidigen. Die „Stücke“, auf die in der Inschrift hingewiesen wird, standen aber am Friesenberg auf der Ostseite des Schlosses.
+
+„Dort befand sich der Schießstand der kurfürstlichen Artillerie“, erklärt die Heidelbergerin. Und nicht nur die Soldaten, sondern auch der Kurfürst vertrieben sich hier gern die Zeitmit Schießübungen - unter anderem am 22. Januar 1681, als ihm das Glück und mit Sicherheit auch der Zufallganz besonders hold waren. „Darauf, dass ihm an diesem Tag der Clou mit den beiden Kugeln gelungen ist, war er offenbar so stolz, dass er den Gedenkstein anfertigen und dort drüben aufstellen ließ“, vermutet Anette Senn-Schmottlach. Die Tafel mit der Inschrift wanderte im Laufe der Jahrhunderte von der einen Seite des Schlosses auf die andere, was wohl der geringen Aufmerksamkeit geschuldet war, die ihr am Friesenberg zuteilwurde. Der Landschaftsarchitekt und Universitätsgärtner des Heidelberger Schlosses, Johann Metzger (1789-1852), vermutete, das „Bürgerliche Artilleriekorps“, das den Stückgarten seit Beginn des
+18. Jahrhunderts nutzte, habe den Stein versetzt, um ihn prominenter zu platzieren.
+
+Warum vertrieb sich Karl mit derartigen Schießübungen die Zeit? Es mag an seinem sonst eher tristen Leben gelegen haben. Als ältester Sohn des Kurfürsten Karl I. Ludwig von der Pfalz (1617- 1680) und dessen Ehefrau Charlotte (1627-1686) wuchs er nach der Trennung der Eltern bei seinem autoritären Vater auf. Seine Biografen beschreiben ihn als ängstlichen und verschlossenen Hypochonder, der in jungen Jahren mit Gelehrsamkeit vollgestopft wurde. Bei Reisen in die Schweiz erkrankte er so schlimm an den Blattern, dass ihn die Pockennarben für den Rest seines Lebens entstellten.
+
+Nicht einmal, wen er heiraten würde, durfte er selbst bestimmen. So landete er nicht - wie er es sich selbst gewünscht hätte - an der Seite einer württembergischen Prinzessin. Vielmehr ehelichte er die ebenso pummelige und dümmliche wie eingebildete Wilhelmine Ernestine von Dänemark (1650-1706), eine Schwester des Dänenkönigs Christian V. (1646-1699). Angeblich musste der 20-Jährige bei den Feierlichkeiten am 20. September 1671 erst einmal nachfragen, was er denn in der Hochzeitsnacht eigentlich zu tun habe. Erst als sein Vater 1680 starb, kam er auf den Thron - allerdings nur für fünf unrühmliche Jahre. 
+
+Eine aufwändige Hofhaltung, für die unter anderem seine Gattin verantwortlich war, seine Jagd- und Theaterleidenschaft und diverse militärische Spielereien zwangen ihn dazu, immer wieder
+den Steuerdruck auf seine Untertanen zu erhöhen und Ämter zu verkaufen. Das brachte ihm nicht nur den Unwillen seines Volkes, sondern schlussendlich auch den Todein. Karl starb am 16. Mai 1684 in Heidelberg, weil er sich beim Krieg spielen in den Mannheimer Rheinauen ein Fieber eingefangen hatte: Vier Wochen lang hatte er die Burg Eichelsheim als türkische Festung drapieren und dann belagern lassen.
+
+„Karl war der letzte pfälzische Kurfürst aus dem Haus Pfalz-Simmern. Nachdem er gestorben war, entbrannte ein Streit um die Erbansprüche seiner Schwester Liselotte, die der Vater 1671 als Herzogin von Orleans nach Frankreich verheiratethatte“,sagt Anette Senn-Schmottlach. Liselottes Schwager König Ludwig XIV. (1638-1715) von Frankreich erhob für sie Ansprüche auf die Pfalz und provozierte den Pfälzischen Erbfolgekrieg (1688-1697), der für Karls und Liselottes Heimatstadt zum Desaster werden sollte. An seinem Ende stand die Zerstörung des Heidelberger Schlosses 1693 (siehe [Geheimnis 39](./torturm.md)), von dem aus Karl das schier Unmögliche gelungen war - wenn ihm auch sonst nicht viel Erfolg im Leben vergönnt war.
+
+*Heike Thissen*
+
+## So geht’s zum Gedenkstein:
+
+Der Gedenkstein steht am hinteren Ende des Stückgartens vor dem Dicken Turm an der Schlossruine, Schlosshof 1. 

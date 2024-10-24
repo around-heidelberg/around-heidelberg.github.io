@@ -1,0 +1,23 @@
+# Besitzstein 
+
+## Ein Zeichen, das vor Seuchen warnt 
+
+*Was aussieht wie ein in Stein gemeißeltes Schneeglöckchen, ist tatsächlich eine Leprosenrassel, mit der Kranke vor sich selbst warnen mussten - auch im Gutleuthof in Schlierbach.*
+
+Menschen im 21. Jahrhundert mögen den knöchelhohen Stein, der dicht neben der Gutleuthofkapelle in Schlierbach steht, vielleicht hübsch finden. Ein Relikt aus längst vergangenen Zeiten, das ist ihm deutlich anzusehen, und mit einer Gravur versehen, die an ein Schneeglöckchen erinnert. Doch die Menschen in der frühen Neuzeit im 17. Jahrhundert fanden den kleinen, grob behauenen Stein vermutlich einE fach nur abstoßend. Denn was so aussieht wie ein zartes Frühlingsblümelein, ist tatsächlich eine sogenannte Lepraklapper oder Leprosenrassel. Und wo immer diese auftauchte - sei es als Instrument oder auch nur als Zeichen - hielten Gesunde lieber Abstand.
+
+„Die Kapelle gehörte zum Gutleuthof, der eine der frühesten sozialen Einrichtungen in Heidelberg war“, erklärt Elizabeth Ehrenfried, Vorsitzende des Verkehrsvereins im benachbarten Ziegelhausen. „Die guten Leute, auf die der Name verweist, waren sogenannte Sondersiechen, also Menschen, die an der Lepra erkrankt waren.“ Diese durften nach den Vorschriften des Laterankonzils aus dem Jahr 1179, die Papst Alexander III. (ca. 1100-1181) erlassen hatte, nicht mit Gesunden in Städten zusammenleben und mussten sich außerhalb der Siedlung aufhalten - so auch in Heidelberg. Die Leprakranken waren also nicht nur entstellt und dem Tod geweiht, sondern auch noch gesellschaftlich isoliert. Dafür, dass sich ihnen niemand näherte, mussten sie selbst sorgen, indem sie eine Lepraklapper bei sich trugen und mit deren Geräusch vor sich selbst warnten. Im Laterankonzil wurde aber auch festgelegt, dass die so geplagten Menschen eigene Kirchen, Geistliche und Friedhöfe bekommen sollten. Und dafür sorgte Pfalzgraf Ludwig III. (1378-1436) im Jahr 1430.
+
+„Ludwig stiftete die Kapelle für das damals noch relativ neue Gutleuthaus und ließ sie dem Erlöser, dessen Mutter Maria und dem heiligen Laurentius weihen“, sagt Elizabeth Ehrenfried. Die Stiftungsurkunde besagt, dass die Kapelle am Neckarufer vor den Mauern Heidelbergs in der Nähe eines Leprosenhauses steht. Der Besitzstein ist Zeichen dafür, dass die Gebäude und das Areal in dessen Besitz waren. 
+
+Der Schlierbacher Pastor Karl Günther hat sich für eine Schlierbach-Chronik genauer mit dem Kirchlein und dem Pflegeheim beschäftigt und schreibt über die Ausstattung: „Zum Gutleuthof gehörten Scheuer, Stallung und anderes Zubehör, ‚undten am neckar mit einer mawer eingefasst‘, etwa 100 Morgen Ackerland, 20 Morgen Wiese und fünf Morgen Wald.“ Karl Günther beschreibt auch, wie mit einem solchen Kranken umgegangen wurde: „Mit der öffentlichen Verkündigung wurde er gleichsam für tot erklärt. Nach einer kirchlichen Feier, die der Totenmesse nachgestaltet war, wurde der Kranke vor einen Tisch geführt, auf dem die Kleidung für die Aussätzigen und ihre Gerätschaften lagen, ein Stab, eine Bettelschale und eine Klapper, mit der die Kranken die Gesunden warnen mußten.“ Wie dieses Warninstrument aussah, lässt sich anhand des Besitzsteins gut erahnen: Es bestand aus mehreren Lagen Holz, die an einem Ende fest miteinander verbunden waren, so dass sie klapperten, wenn man sie gegeneinander schlug.
+
+Die Kapelle und der Stein sind die beiden letzten Zeugen des Gutleuthofes in Schlierbach. Nachdem in der Reformationszeit die Zahl der Leprakranken stark zurückgegangen war, zogen andere Leidende ein: Menschen mit Syphilis, aber auch Alte, Arme und kranke Reisende wurden fortan in dieser „Elendsherberge“ gepflegt. Zu Beginn des 19. Jahrhunderts veräußerte die Kirche die Ländereien, 1741 war aus dem Haus schon ein Gasthof geworden, der aber am 3. Mai 1880 komplett abbrannte. „Wahrscheinlich würde auch die Kapelle nicht mehr stehen, wenn man nicht 1921 mittelalterliche Wandmalereien entdeckt hätte“, vermutet Elizabeth Ehrenfried hinsichtlich des weiteren Schicksals der Kapelle. Denn eigentlich war geplant, sie zugunsten einer Bahnhofserweiterung oder einer neuen Straßenführung abzureißen.
+
+Wie gut, dass das nicht passiert ist! Denn dann wäre zusammen mit der Kapelle mit Sicherheit auch der Besitzstein verschwunden. Nicht, dass er große Beachtung erfahren würde. Aber er erzählt doch eindrucksvoll von einer Zeit, als Todkranke vor sich selbst warnen mussten.
+
+*Heike Thissen* 
+
+## So geht’s zum Besitzstein:
+
+Der Besitzstein mit der Darstellung einer Leprosenrassel steht an der westlichen Außenfassade der Gutleuthof-Kapelle in Schlierbach, Gutleuthofweg 2a. 
