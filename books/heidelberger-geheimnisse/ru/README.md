@@ -109,18 +109,557 @@
 ```geojson
 {
   "type": "FeatureCollection",
-  "features": [
+  "features": [	
     {
-      "type": "Feature",
-      "properties": {
-        "secret": "01",
-        "name": "Лица с монетами — Для защиты Оберрейнского банка"
+        "type": "Feature",
+        "properties": {
+          "secret": "01",
+          "name": "Лица с монетами — Для защиты Оберрейнского банка"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
       },
-      "geometry": {
-          "type": "Point",
-          "coordinates": [8.706071561839083, 49.41162016859975]
-      }
-    }
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "02",
+          "name": "Башенки — Римско-католики хотели переехать"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "03",
+          "name": "Надгробие — Путешествие на ярмарку заканчивается трагедией"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "04",
+          "name": "Фонтан "Хуренбруннен" — Сначала никаких следов легких девушек"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "05",
+          "name": "Метка наводнения — Вулканическое извержение вызывает хаос"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "06",
+          "name": "Бордюрные камни — 330 миллионов лет под ногами"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "07",
+          "name": "Дверь в карцер — Непокорных студентов возвращают к порядку"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "08",
+          "name": "Огненный саламандр — Защита от огня для Маршталя"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "09",
+          "name": "Камень собственника — Знак, предупреждающий о чуме"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "10",
+          "name": "Черно-синий квадрат — Пороховой склад над Неккаром"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "11",
+          "name": "Инициал — Он был популярен в Хайдельберге"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "12",
+          "name": "Следы от выстрелов — После атаки срочно заделаны"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "13",
+          "name": "Комета — Много шума из-за (почти) ничего"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "14",
+          "name": "Фонтан 'Стиральщицы' — Трудолюбивая прачка"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "15",
+          "name": "План здания — Напоминание о предшественнике"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "16",
+          "name": "Знак каменщика — Тайна мастера"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "17",
+          "name": "Мемориальный камень — Невероятная точность стрельбы"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "18",
+          "name": "Небесная лестница — Вверх по крутым ступеням"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "19",
+          "name": "Крендель — Загадка каменного изделия"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "20",
+          "name": "Скамейка Тилли — Два врага объединены в идиллии"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "21",
+          "name": "Волчьи головы — Водосточные трубы с долгой историей"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "22",
+          "name": "Надпись на фонтане — Знак неразделённой любви"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "23",
+          "name": "Железные крюки — Улица была слишком узкой"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "24",
+          "name": "Щит с орлом — Блины для счастья Иоганнеса Брамса"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "25",
+          "name": "Надгробие — Великая женщина на его стороне"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "26",
+          "name": "Башня Бисмарка — Общенациональный памятник памяти"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "27",
+          "name": "Головы собак — Тесная связь между человеком и животным"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "28",
+          "name": "Надпись Каспара-Джоба — Первый умерший на кладбище Бергфридхоф"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "29",
+          "name": "Дыра — Когда камни падали с неба"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "30",
+          "name": "Рыбный бассейн — Подходит для хранения свежей рыбы"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "31",
+          "name": "Улица Панков — Никаких следов ирокезов и заклёпок"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "32",
+          "name": "Взгляд канцлера — Вид для политиков и путешественников"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "33",
+          "name": "Башня — Когда-то полная воды — теперь пустая"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "34",
+          "name": "Два входа — Стена разделяла верующих"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "35",
+          "name": "Лошадка — Высоко в седле и на крыше"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "36",
+          "name": "Части ящиков — Вода не всегда текла"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "37",
+          "name": "Ложный имперский орёл — Смотрит в противоположную сторону"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "38",
+          "name": "Каменная стена — Всё, что осталось от хижины Геральда"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "39",
+          "name": "Воротная башня — Уцелела благодаря ошибке военной машины"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "40",
+          "name": "Голова зависти — Дождь полезен для кожи!"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "41",
+          "name": "Знак ремесленника — Витрина особого рода"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "42",
+          "name": "Портал — Когда-то вход на центральное кладбище"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "43",
+          "name": "Шрифт — Реликт амбициозного проекта"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "44",
+          "name": "Лошадиный рельеф — Невзрачная рекламная вывеска"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "45",
+          "name": "Мавзолей — Память о супругах-пивоварах"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "46",
+          "name": "Памятник Надлеру — В честь двух разных мужчин"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "47",
+          "name": "Капитель — Дом для паломников и больных"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "48",
+          "name": "Мостовая опора — Всё, что осталось от пересечения Неккара"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "49",
+          "name": "Номер дома — Долгий путь к собственной адресе"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+      },
+  {
+        "type": "Feature",
+        "properties": {
+          "secret": "50",
+          "name": "Вход в туннель — Сажа от локомотивов сохранилась"
+        },
+        "geometry": {
+            "type": "Point",
+            "coordinates": []
+        }
+  }
   ]
 }
 ```
