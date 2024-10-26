@@ -1,4 +1,4 @@
-# Wolisköpfe
+# Wolfsköpfe
 
 ## Wasserspeier mit langer Geschichte
 
