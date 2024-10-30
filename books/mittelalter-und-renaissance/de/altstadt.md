@@ -1,0 +1,155 @@
+Die Altstadt und ihre hochmittelalterlichen Befestigungen
+
+*Christoph Mauntel*
+
+Durch himmelstürmende Kirchtürme und spitze Giebel geprägt sowie von hohen Mauern umfasst erheben sich städtische Silhouetten über ihr ländliches Umland - so zumindest stellen viele mittelalterliche Miniaturen und Holzschnitte eine typische Stadt dar. Damit machen sie deutlich, welche bedeutende Funktion der Stadtbefestigung aus mittelalterlicher Sicht zukam: Jenseits schützender Bollwerke waren sie auch in rechtlicher Hinsicht ein Symbol der Stadt. Städte hatten häufig ein eigenes Recht, dessen Geltungsbereich die Mauer anzeigte, die die Stadt von ihrem Umland trennte. In Heidelberg ist eine solche Stadtmauer (»murus civitatis«) ab 1235 schriftlich belegt, so dass man die Stadtwerdung Heidelbergs auf etwa 1200 bis 1220 datieren kann. Die Altstadt dürfte etwa in jener Zeit ihr heutiges Gesicht bekommen haben. Ihr großzügiges lind regelmäßiges Straßenraster lässt eine planmäßige Anlage durch den Pfalzgrafen vermuten, wie sie für das 13. Jahrhundert typisch war. Als Mittelachse diente die Hauptstraße, die von Parallelstraßen flankiert (Ingrimstraße, Untefe Straße) und von querlaufenden Gassen gekreuzt wurde. In der Stadtmitte befand sich der Marktplatz, an dem sich die zentralen Wege trafen (Hauptstraße, Steingasse) und der durch die Heiliggeistkirche dominiert wurde.
+
+Wenn wir uns im Folgenden also auf die Spuren des mittelalterlichen Heidelberg begeben, bietet es sich geradezu an, dem Verlauf der alten Stadtmauer zu folgen. Ihre Türme und Tore berichten nicht nur vom städtischen Leben und seinen sozialen und rechtlichen Besonderheiten, sondern führen uns auch die Größe der Stadt vor Augen: Mit ungefähr 5000 Einwohnern war Heidelberg 1439 durchaus eine größere Stadt und hatte in etwa so viele Einwohner wie Ravensburg, Leipzig oder Freiburg im Üechtland. Solche Bevölkerungsgrößen wollten immer in ihrer zeitgenössischen Relation gesehen werden, da man sich sonst von den heute klein erscheinenden Zahlen täuschen lässt: Dresden hatte zur selben Zeit 3000 Einwohner, Zürich 5000, Mainz 5700, Aachen knapp 10000, Straßburg 18000. Die größte Stadt im deutschen Sprachgebiet war zur damaligen Zeit Köln mit etwa 40000 Einwohnern. Der Gang entlang der Stadtmauer zeigt damit auch, wie groß das Gebiet einer hochmittelalterlichen Stadt war. Trotz der großzügigen Anlage Heidelbergs prägte bald eine dichte Bebi uung mit engen Gassen das Bild, so dass in Heidelberg wie andernorts »Altstädte« im Laufe ihrer Entwicklung durch »Neustädte: erweitert werden mussten. 
+
+*Der Hexenturm*
+
+> **Öffnungszeiten**
+>
+> Innenhof der Neuen Universität: Der Innenhof ist täglich außer Sonntag von etwa 8 bis 22 Uhr geöffnet.
+
+**Stationen** (Rundgang: circa 1,5 bis 2 Stunden):
+
+**[1]** Hexenturm (Innenhof der Neuen Universität)
+
+**[2]** Universitätsplatz
+
+**[3]** Mitteltorturm (Hauptstraße 126)
+
+**[4]** Heuscheuer und Zeughaus (Kreuzung Marstallstraße/Neckarstaden)
+
+**[5]** Judentor (Kreuzung Lauerstraße/Dreikönigstraße)
+
+**[6]** Linstörlein und Lauerplatz (Kreuzung Neckarstaden/Haspelgasse)
+
+**[7]** Tor der Alten Brücke, Brückenaffe, Neckarschule (Obere Neckargasse 1)
+
+**[8]** Alte Brücke
+
+**[9]** Leyertor (Kreuzung Obere Neckarstraße/Leyergasse)
+
+**[10]** Münzturm und Vorstadt (Neckarmünzgasse 4/6)
+
+**[11]** Inneres Obertor (Kreuzung Hauptstraße/Plankengasse)
+
+**[12]** Kaltetalturm (Plankengasse/Karlstraße)
+
+**[13]** Eselspfadturm (Eselspfad)
+
+**[14]** Rest der Stadtmauer (Burgweg 11)
+
+**[15]** Stadtmauer und Bäder (Zwingerstraße/Oberbadgasse)
+
+**[16]** Markbronner Tor (Kreuzung Zwingerstraße/ Kettengasse)
+
+**[17]** Loh-Gerber und alter Graben (Kreuzung Seminarstraße/Unterer Fauler Pelz)
+
+**[18]** Rest der Stadtmauer (Seminarstraße)
+
+**[19]** Rest der Stadtmauer (Schlossberg-Tunnel)
+
+**[20]** Keltertor (Schlossberg 3-4) 
+
+Der Rundgang entlang der hochmittelalterlichen Stadtmauer beginnt an ihrem heute noch markantesten Rest, dem Hexenturm an der **Ecke Grabengasse/Seminarstraße** **[1]**. Dieser Turm
+Markierte die südwestliche Ecke der hochmittelalterlichen Stadtmauer, die entlang der Seminarstraße auf ihn zulief und dann die Grabengasse nordwärts zum Neckar verlief. Die Peterskirche, die als älteste Heidelberger Kirche bereits in das 12. Jahrhundert zurückreicht, lag damit außerhalb der Stadtmauern. Topographisch steht sie auf einer erhobenen Position, die nach drei Seiten hin abfällt (Plöck, Grabengasse, Seminarstraße). Der vom Berg kommende Klingenteichbach bildete hier im Laufe der Zeiteinen Schwemmkegel, dessen Oberflächenniveau mit etwa 118 Metern über dem Meeresspiegel drei bis sieben Meter höher liegt als die übrige Altstadt. Hier, zwischen Theaterstraße, Hauptstraße, Kettengasse und dem Hang des Königsstuhls, vermutet die archäologische und historische Forschung die Keimzelle Heidelbergs. Wahrscheinlich entstand hier in der zweiten Hälfte des 12. Jahrhunderts eine zur Burg gehörende Siedlung, an deren südlicher Spitze die Peterskirche gelegen haben könnte. Mit der planmäßigen Gründung der Altstadt wurde diese Siedlung größtenteils aufgegeben und eingeebnet. Die neu errichtete Stadtmauer durchschnitt dann den alten »Burgweiler«.
+
+*Rekonstruktion der Stadtmauer mit Hexenturm und den Gebäuden des ehemaligen Augustinerklosters (17. Jahrhundert)*
+
+Der circa 34 Meter hohe Hexenturm steht heute im Innenhof der Neuen Universität, die 1931 errichtet wurde. Wir erreichen den Innenhof durch einen der beiden Zugänge an der Grabengasse bzw. der Seminarstraße. Das Alter des Turms ist nicht exakt geklärt. Da er seiner Form nach in das späte 13. Jahrhundert datiert, war er vermutlich eine spätere Ergänzung der ursprünglichen Befestigung. Bis zur Stadterweiterung von 1392 bildete er die südwestliche Ecke der Stadtbefestigung. Aus fortifikatorischen Gründen war er in die Diagonale gedreht. Zur Stadtseite hin öffnete er sich in drei Doppelarkaden, um es dem Gegner im Fall einer Eroberung unmöglich zu machen, sich im Turm zu verschanzen. Auf Höhe der ersten Arkade sieht man noch heute herausstehende Kragsteine, die früher die hölzernen Verbindungsstege zu den Stadtmauern trugen. Daraus lässt sich ableiten, dass die Stadtmauer an dieser Stelle die beträchtliche Höhe von circa zwölf Metern erreichte - und damit fast bis an die Regenrinne des heutigen Universitätsgebäudes gereicht hätte.
+
+Der heutige Name des Hexenturmes ist erst seit 1689 belegt, davor war er ab dem 15.Jahrhundert als »Diebesturm« bekannt, da sein unterster, überwölbter Raum als städtisches Gefängnis diente. Der Merian-Stich von 1620 zeigt ihn mit einem Spitzdach, beim Wiederaufbau der Stadt 1693 erhielt er dann ein gewalmtes Mansardendach. Außerdem wurden je vier Fenster in die Nord- und Südwand sowie ein Tor in die Wand auf der Grabenseite gebrochen. Um Baumaterial für den Festungsbau in Mannheim zu gewinnen, wurde der Turm 1725 teilweise abgerissen und nur Proteste der Heidelberger Bevölkerung verhinderten, dass er ganz niedergelegt wurde. Seit 1906 gehört er zur Universität, die 1932/33 im erstenStock eine Gedenkstätte für die im Ersten Weltkrieg gefallenen Universitätsangehörigen einrichten ließ. 
+
+*Hervorkragende Steine am Hexenturm, die einst einen hölzernen Wehrgang trugen*
+
+Vom Hexenturm gehen wir die Grabengasse hinab zum **Universitätsplatz** **[2]**. Die Grabengasse selbst markiert den Verlauf des Stadtgrabens. Beim Bau der Stadtmauer wurde der Klingenteichbach, der ursprünglich wohl entlang der Sand- und Schiffsgasse verlief, hierher in den Stadtgraben umgeleitet. An der leicht eingewölbten Pflasterung der Grabengasse ist der ehemalige Graben noch heute erkennbar, vor allem im Vergleich zum deutlich höher liegenden Universitätsplatz. Unter seiner Pflasterung liegen die Grundmauern des Augustinerklosters, weswegen seine Oberfläche nicht wie der heute verfüllte Graben absinken konnte. Die Stadtmauer verlief im Anschluss an den Hexenturm durch den heutigen Innenhof der Neuen Universität, quer über den Universitätsplatz und an der Fassade der Alten Universität entlang.
+
+Dort, wo die Stadtmauer auf die Hauptstraße traf, stand der **Mitteltorturm** **[3]**, an den heute noch zwei Gedenktafeln an den Fassaden von Hauptstraße 126 und 135 erinnern. Die Hauptstraße als zentrale Achse der Stadt orientierte sich vermutlich am Verlauf eines Handelswegs von Worms nach Würzburg, so dass der Mitteltorturm das Haupttor Heidelbergs war. Auf dem Merian-Stich erscheint er als mächtiger Turm, der die Stadtmauern hoch überragt. Deutlich ist das hohe, spitze Dach mit Glockenturm und mehreren hölzernen Gauben zu erkennen. Direkt vor dem Tor führte eine Zugbrücke über den Stadtgraben. Auf der Stadtinnenseite sieht man auf dem Merian-Stich Arkaden. Ursprünglich waren diese (wie beim Hexenturm) aus taktischen Gründen offen, zu Merians Zeiten aber bereits zugemauert. Seine zentrale Verteidigungsfunktion hatte der Turm durch die Stadterweiterung nach Westen schon lange verloren und so wurde das Innere als Wohnraum für den Nachtwächter genutzt, der hier seinen Sitz hatte. Die Stadtordnung von 1465 bestimmte, dass 30 der tauglichsten Männer die Stadtwache übernehmen mussten. Vier von ihnen sollten jeweils Nachtwache halten, sich alle 15 Minuten gewissenhaft umschauen und der Stadt ihre Aufmerksamkeit durch ein Hornsignal anzeigen, wie eine Dienstordnung aus dem 18. Jahrhundert bestimmt. Für den Notfall stand ihnen eine Sturmglocke sowie eine Laterne zur Verfügung, die sie an einer langen Stange vom Turm in die Richtung hängten, in der das Feuer 
+gesichtet wurde. Bei Tag wurde die Laterne durch eine Fahne ersetzt, wobei rot einen Stadtbrand und grün einen Waldbrand signalisierte. 
+
+*Der Mitteltorturm an der Hauptstraße vor seinem Abriss 1827*
+
+Nach dem verheerenden Brand von 1689 erhielt der Turm einen achteckigen Aufsatz mit einer sogenannten welschen Haube, wie sie ein späterer Stich von 1824 zeigt. Letztlich jedoch wurde der Turm 1827 als Verkehrshindernis abgerissen. Der Feuerwächter verrichtete seitdem seinen Dienst auf dem Turm der Heiliggeistkirche. 
+
+Die Stadtmauer verlief vom Mitteltorturm weiter neckarabwärts. Wegen der heutigen Bebauung können wir ihr nicht direkt folgen, sondern gehen die Hauptstraße ein Stück Richtung Bismarckplatz, biegen rechts in die Marstallstraße ab und folgen ihr bergab Richtung Neckar zum charakteristischen Bau der **Heuscheuer** **[4]**. Sie wurde zwar erst nach der Zerstörung Heidelbergs um 1707/08 gebaut, birgt jedoch die neben dem Hexenturm bedeutendsten Reste der hochmittelalterlichen Stadtbefestigung. Deutlich erkennbar ist die bis zu einer Höhe von etwa 9,5 Meter gerundete Nordwest-Ecke: Dies ist der Stumpf des Frauenturms, der bis 1392 der nordwestliche Eckturm der Stadtbefestigung war. Ursprünglich stand hier ein Wehrbau aus zwei Türmen, die durch einen Mittelbau verbunden waren. Nach der Stadterweiterung Ende des 14. Jahrhunderts wurde der Turm offenbar als Arbeitshaus für Frauen bzw. als Gefängnis genutzt. In schriftlichen Quellen begegnet er uns 1466 als »kefich« und 1620 als »frawenthurn« beziehungsweise »keffig«. Nachdem die Eckbastion 1693 beim großen Stadtbrand zerstört worden war, errichtete man aus den Trümmern ein städtisches Lagerhaus. Seit 1963/65 wird die Heuscheuer von der Universität als Hörsaalgebäude genutzt. 
+
+*Die Heuscheuer, in deren Bau Reste der einstigen Stadtbefestigung einbezogen wurden*
+
+Der Heuscheuer gegenüber liegt das ehemalige kurfürstliche Zeughaus. Es wurde 1510 als Lagergebäude für Waffen und Kriegsgerät errichtet. Der vergleichende Blick auf den Merian-Stich zeigt deutlich einen Unterschied im Bodenniveau. Nimmt man den am Neckar gelegenen Eckturm in den Blick, so erkennt man heute knapp über dem Pflaster, dass der Turm auf einem zurückgesetzten Sockel mit Rundbogenfries aufsetzt. Auf dem Merian-Stich markiert er das obere Ende des ersten Stockwerks; ursprünglich lag der Boden hier also etwa zwei Meter tiefer! Nachdem der westliche Teil der alten Stadtbefestigung durch die Erweiterung der Stadt überflüssig geworden war, schüttete man den Stadtgraben im 17. Jahrhundert auf und erhöhte damit das Bodenniveau massiv bis auf die Höhe der heutigen Oberfläche. Bei Kanalisationsarbeiten wurden später zwischen dem Marstall und der Heuscheuer etwa 40 Zentimeter unter der heutigen Oberfläche der Marstallstraße die Reste einer Mauer und ihrer Stützpfeiler entdeckt: Wir erkennen sie ebenfalls auf dem Merian-Stich als Sperrmauer, die den Stadtgraben zum Neckar hin abschloss. Auch der Durchlass für den Klingentalbach ist gut zu erkennen. 
+
+*Eckturm des Zeughauses mit Rundbogenfries knapp über der Pflasterung*
+
+*Darstellung des Eckturms, der direkt an den Stadtgraben und den Neckar grenzt, im Merian-Stich von 1620*
+
+An der Heuscheuer biegen wir nach Osten in die Lauerstraße ein. Die Stadtmauer verlief vermutlich an der nördlichen (nun links liegenden) Seite der Straße - sowohl auf dem Stich Münsters als auch dem Merians erkennt man ihren geraden Verlauf. An der Lauerstraße 1-7 stand die 1471 erstmals erwähnte Pfistermühle, die den städtischen Bäckern als gemeinsame Mühle diente. Durch ein Hochwasser im Jahre 1824 wurde sie zerstört. 
+
+An der Kreuzung **Lauerstraße/Dreikönigstraße** **[5]** erinnert noch heute eine kleine Gedenktafel an das Judentor, das ab 1566 in den Quellen nachgewiesen ist. Seinen Namen hat es von der dahinterliegenden Gasse, die bis ins 19. Jahrhundert Judengasse genannt wurde: Hier befand sich bis zur Vertreibung der jüdischen Gemeinde Heidelbergs deren Zentrum (siehe Rundgang 9). Auf dem Merian-Stich ist das Judentor als breites Tor mit Aufbau dargestellt. Bei Hochwasser konnte es mit Balken und Sandsäcken verschlossen werden. Das Judentor bildete den Hauptzugang zum Lauerplatz, der sich vor der Stadtmauer am Neckar entlang erstreckte. Dieser Platz wurde vor allem als Holzmarkt und Handelsplatz genutzt. Der Flussverlauf, wie ihn der Merian-Stich zeigt, legt nahe, dass aufgrund der niedrigen Wassertiefe wohl nur kleinere Schiffe am Ufer anlegen konnten. Später wurden hier der städtische Holzhof sowie das sogenannte Lauerhaus gebaut, das nicht nur den Holzschreibern als Amtssitz diente, sondern seit 1770 auch einen Festsaal beherbergte. Es wurde 1880 zerstört. 
+
+Wir folgen nun dem Verlauf der Neckarstaden (und damit dem Verlauf der Stadtmauer) bis zur **Kreuzung Neckarstaden/Haspelgasse** **[6]**. Hier bot das »Linstörlein« einen zweiten Zugang zum Lauerplatz. Sowohl bei Münster 1544 als auch bei Merian ist es nur als kleiner Durchgang in der Stadtmauer erkennbar. Direkt daneben befand sich seit 1587 der mächtige städtische Kornspeicher. Der ehemalige Stadtarchivar Derwein vermutete, dass der Name des erstmals 1704 als »Linßen thor« belegten Durchgangs vom mundartlichen »linsen« (für heimlich hinaus-/hineinblicken) herrührt. Der Rundgang führt nun die Neckarstaden entlang hoch zum Tor der Alten Brücke. 
+
+*Die Alte Brücke*
+
+Das charakteristische doppeltürmige Tor der **Alten Brücke** **[7]** ist schon auf der Darstellung Heidelbergs von 1527 deutlich erkennbar (siehe S.57). In ihrer heutigen Form gehen die beiden schlanken Türme noch auf das Spätmittelalter zurück. Mit dem Bau der heutigen Brücke zwischen 1786 und 1788 unter Pfalzgraf Karl Theodor wurden sie um ein barockes Tor und Turmhelme ergänzt. Der westliche Torturm beherbergt drei kleine Kerker, der östliche eine kleine Wohnung, die sich auch auf das Torhaus erstreckt. Auf der Rückseite des östlichen Turms befindet sich eine Gedenktafel für die vielfach erneuerte Alte Brücke. 
+
+Schon 1217 ist an der Stelle der heutigen Alten Brücke eine Neckarfähre belegt, die von Mönchen des Klosters Schönau betrieben wurde. Die Brücke selbst ist 1284 urkundlich zum ersten Mal erwähnt. Ihr Bau dürfte bei der planmäßigen Anlage der Stadt bereits vorgesehen gewesen sein. Der Standort war strategisch gewählt, da die Brücke den Neckar in der Mitte der Altstadt quert und zudem vom Schloss aus gut zu kontrollieren war. Indem der Neckarübergang von Bergheim, wo es bereits eine antike römische Neckarbrücke gab, in die Altstadt verlegt wurde, lenkte man zudem einen Handelsweg von Frankfurt nach Basel durch Heidelberg. Ruprecht I. versuchte den Handel unter anderem 1357 durch die Etablierung einer vierzehntätigen Messe zu stärken, die sich terminlich an die große Frankfurter Frühjahrsmesse anschloss und so von dort abreisende Besucher nach Heidelberg locken sollte. Die heutige Brücke hatte vermutlich acht hölzerne Vorgängerbauten, die seit dem 13.Jahrhundert immer wieder durch Hochwasser und Eisgang zerstört wurden. Direkt vor dem Brückentor soll sich eine Zugbrücke befunden haben. Auf dem Stich von Merian erkennen wir eine überdachte und an den Seiten geschlossene Holzbrücke, wie sie seit ungefähr 1565 bestand. 
+
+Gehen wir stadtauswärts bis zur **Mitte der Brücke** **[8]**, so fällt auf, dass der siebte Pfeiler deutlich breiter ist. Nach Osten hin befindet sich eine kleine Balustrade, nach Westen eine größere Plattform, auf der die Statue der Pallas-Athene steht. Hier stand früher ein weiterer Turm, für den der Brückenpfeiler verbreitert werden musste. Dieser Turm, der mit einem eisernen Gitter gesperrt werden konnte, bildete bis um 1460 die Grenze zwischen den Territorien der Kurpfalz und des Erzbistums Mainz — mit dem Überqueren der Brücke betrat man also ein anderes Herrschaftsgebiet. Während das Brückentor die Stadt sicherte, markierte der Turm auf der Brücke die territoriale Grenze. Erst 1465 übertrug der Pfalzgraf der Stadt das Recht, den Brückenzoll selbst ein zunehmen, sowie die damit verbundene Pflicht, die Unterhaltskosten der Brücke zu übernehmen. Der Grund hierfür war einfach: Drei Jahre vorher waren Pfalzgraf Friedrich dem Siegreichen nach einem Schlachtensieg über den Erzbischof von Mainz die Dörfer Handschuhsheim, Dossenheim, Neuenheim und der Heiligenberg übertragen worden - die Brücke hatte damit ihre Bedeutung als Grenze verloren.
+
+Dem Angriff Tillys 1620 hielt die Brücke stand, 1689 aber wurde sie und mit ihr der nördliche Grenzturm zerstört. Als Ersatz wurde eine Holzbrücke errichtet, die jedoch 1784 bei einem außergewöhnlich starken Hochwasser mit Eisgang zusammenbrach. Vier Jahre später, 1788, wurde die heutigesteinerne Brücke fertig und damit die traditionelle Einheit aus Schloss, Heiliggeistkirche und Brücke wiederhergestellt. 
+
+Wir gehen erneut stadteinwärts, rechts am Brückentor vorbei, wo der sogenannte Brückenaffe steht. Die Bronze-Figur von Gernot Rumpf erinnert seit 1979 an den alten Brückenaffen, der von der Nordwand des Brückenturms, also dem Mainzer Terfltorium zugewandt, auf alle herannahenden Besucher herabblickte. Der Affe fasste sich mit der einen Hand an den Hintern und hielt dem Neuankömmling mit der anderen einen Spiegel entgegen. Neben dem Stein bild stand folgender Text: 
+
+> »Was thustu mich hie angaffen?
+> Hastu nicht gesehen den alten Affen
+> Zu Heydelberg, sieh dich hin und her,
+> Da findestu wol meinesgleichen mehr!«
+>
+> (überliefert durch Martin Zeiller, »Itinerarium Germania«, 1632) 
+
+*Der Heidelberger »Brückenaffe« auf einem Flugblatt von 1620/21 und heute*
+
+Derartige Spottbilder sind von vielen Orten bekannt: In Lübeck begrüßte den Ankömmling das nackte Hinterteil einer Merkur-Statue, am Chorgestühl des Doms zu Ribe in Dänemark findet man ebenso zwei Affen wie an der Wertheimer Kilianskapelle - immer mit einem Spiegel in der einen Hand und mit der anderen am Hintern. Man kann diese Bildnisse gleichermaßen als Aufruf zur Demut wie auch als frechen Spott sehen. In Heidelberg muss der Affe ein Wahrzeichen der Stadt geworden sein: Zeitweilig hielt man am Brückentor sogar einen lebenden Affen, dessen Tod durch Ertrinken um 1550 überliefert ist. Als der Brückenturm 1689 gesprengt wurde, ging auch der alte steinerne Brückenaffe verloren. 
+
+Vom Brückenaffen gehen wir am Brückentor vorbei zur Oberen Neckargasse 1. Hier, direkt an der Stadtmauer, stand früher die Neckarschule, eine um 1420 von der Bürgerschaft gegründete Bildungsstätte - und damit die älteste Heidelbergs. Da die Bürger ohnehin für die Instandhaltung der Stadtmauern verantwortlich waren, bezog man bei städtischen Bauten häufig die Stadtmauer in das Gebäude mit ein, um die Kosten für eine Mauer einzusparen. Im heutigen Nachfolgerbau der Neckarschule von 1706 ist als gewölbter Gang noch das Tränktor erhalten. 1435 ist es als »fysche pforten« (wegen der nahe gelegenen Fischergasse) und 1528 als »Drenckthor« fassbar, weil es einen Durchgang zum Neckar bot, an dem das Vieh getränkt werden konnte. 
+
+Wir folgen weiter dem Verlauf der Stadtmauer entlang der Oberen Neckarstraße. Bei Hausnummer 21 befand sich die erstmals 1239 erwähnte Mönchsmühle, die zum Schönauer Klosterhof gehörte (siehe Rundgang 10). An der Kreuzung **Obere Neckarstraße/Leyergasse** **[9]** stand bis zum Ende des 17. Jahrhunderts das Leyertor. Hier, direkt an der Stadtmauer waren die Loh-Gerber (»lawer«) angesiedelt, um ihre übel riechenden Abwässer schnell in den Neckar leiten zu können. Nach ihnen hießen Tor und Gasse ursprünglich Lawertor beziehungsweise -gasse, vielleicht geht auch der Name Lauerplatz auf sie zurück. Allerdings findet er in den Quellen nur als Handelsplatz Erwähnung.
+
+Wir folgen der Oberen Neckarstraße weiter und biegen an ihrem Ende leicht nach links ab, um in die **Neckarmünzgasse** **[10]** zu kommen. Bei Hausnummer 4/6 stand der Münzturm, der 1750 als Pulverturm erwähnt wird. Reste der Mauer sollen sich in der Rückwand von Neckarmünzgasse 2 und 4 erhalten haben. Der sich am Fluss erstreckende Neckarmünzplatz war eine zwischen der Mönchs- und Herrenmühle gelegene Anlegestelle für Flöße. Der Merian-Stich zeigt, wie die obere Vorstadtmauer weiter Richtung Osten verlief, die eigentliche Stadtmauer aber in einem Bogen nach Süden abknickte. Die Vorstadtmauer hatte keine direkte Verbindindung zur Stadtmauer, sondern diente dem Schutz der kleinen oberen Vorstadt, die sich im 14. Jahrhundert gebildet hatte. Die Mauer entstand wohl erst zu Beginn des 17. Jahrhunderts.
+
+Wir folgen der Neckarmünzgasse um dann rechts in die Jakobsgasse einzubiegen. Diese befand sich im Mittelalter bereits außerhalb der eigentlichen Altstadt. Am Ende dieser Gasse biegen wir rechts in die Hauptstraße ein, wo wir zu unserer Rechten das Palais Weimar beziehungsweise Freudenberg aus dem Jahr 1714 erblicken. Auf dem Merian-Stich lässt sich an dieser Stelle direkt vor der Stadtmauer der Stadtweiher erkennen. Der Pfalzgraf gestand der Stadt 1465 zu, im Stadtgraben sowie im Stadtweiher Fischzucht zu betreiben und die Verkaufserlöse für die Instandhaltung der Befestigung aufzuwenden. 
+
+Wir gehen die Hauptstraße weiter Stadteinwärts, bis wir an die **Plankengasse** **[11]** kommen. Hier stand früher das Innere Obertor beziehungsweise die Jakobspforte. Es wurde 1371 schriftlich erwähnt und trennte die Obere Vorstadt vom eigentlichen Stadtgebiet, das man über eine kleine Brücke über den Stadtgraben betreten konnte. Das Tor wurde beim Angriff auf Heidelberg 1689 gesprengt und 1759 gänzlich abgetragen. 
+
+Nun folgen wir dem Verlauf der Mauer nach Süden und biegen dazu links in die Plankengasse ein. Auf der Höhe der nach rechts abzweigenden **Karlstraße** **[12]** stand der Kaltetalturm, an den auch heute noch eine Gedenktafel erinnert. Der Turm diente vermutlich zur Aufbewahrung von Schießpulver. Nach der Zerstörung Heidelbergs wurde hier wohl nur noch zu Kriegszeiten Pulver gelagert, bis man den Turm schließlich 1750 abgerissen hat. Der Merian-Stich zeigt, wie die Stadtmauer vom Kaltetalturm den Hang hoch bis zum Glockenturm des Schlosses verlief. Die Einbindung der Stadtmauer in die Befestigungsanlage des Schlosses zeigt die enge Bindung der Stadt und ihrer Bauten an den Pfalzgrafen. Wir gehen geradeaus den **Eselspfad** **[13]** entlang, einen schmalen Weg zur Herrenmühle, auf dem mit Lasteseln das Korn transportiert wurde. Hier befand sich der kleine Eselspfadturm, der auf dem Merian-Stich ohne Dach und kaum höher als die Stadtmauer selbst erscheint. 
+
+Wir kehren um und folgen dem Verlauf der Karlstraße, am rechter Hand gelegenen Karlsplatz vorbei bis zum Kornmarkt, und biegen links in den Burgweg ab. Dieser führt uns am Gebäude der Bergbahn vorbei bergauf. Deutlich sind nun auf der rechten Seite gegenüber **Burgweg 11** **[14]** Bruchstücke der alten Stadtmauer sichtbar. Heute sind sie in der Stützwand der höher gelegenen Neuen Schlossstraße verbaut, die sich bis zur Grundstücksgrenze zwischen Burgweg 12 und Kurzem Buckel 1 zieht. Der Merian-Stich zeigt, wie eine Schenkelmauer vom sogenannten »Dicken Turm« des Schlosses (siehe Rundgang 6) den Hang abwärts geführt wurde und hier wieder auf die Stadt traf. Die Mauer verlief quer durch das heutige Gebäude der Bergbahn. Um ihrem Verlauf weiter zu folgen, kehren wir um und biegen vom Burgweg nach links in die Zwingerstraße ein. 
+
+*Reste der alten Stadtmauer am Burgweg*
+
+Etwa ab der Kreuzung **Zwingerstraße/Oberbadgasse** **[15]** nahm die Stadtmauer den heutigen Verlauf der Zwingerstraße an — und zwar mittig: Die Zwingerstraße, einst eine schmale Gasse direkt hinter der Mauer, wurde im 19. Jahrhundert verlegt und verbreitert. Der Badbrunnen gegenüber der Mündung der Mittelbadgasse wurde dabei entsprechend nach Süden versetzt. Er versorgte die umliegenden öffentlichen Bäder mit frischem Wasser (siehe Rundgang 10).
+
+Wir folgen der Zwingerstraße bis zur Kreuzung mit der **Kettengasse** **[16]**. Hier stand das 1466 erstmals erwähnte Markbronner Tor, später Kettentor genannt. Es war vermutlich nach dem an dieser Ecke stehenden Markbrunnen benannt, der auf der Grenze (Mark) der zwei Stadtbezirke stand. Auf dem Tor wohnte zunächst der Pförtner, ab dem 15. Jahrhundert hatten hier vermutlich die Schneider ihr Zunfthaus. Die dichte Bebauung, die auf dem Merian-Stich vor der Außenseite der Mauer zu sehen ist, hat den Wehrgang darauf offenbar nutzlos gemacht. Das Tor wurde 1693 teilweise zerstört, aber wieder aufgebaut. Es ist möglich, dass vom Kettentor und dem dort befindlichen kurfürstlichen Marstall der »Plättelsweg« zur so genannten »alten Burg« auf dem Gaisberg führte (siehe Rundgang 3). 
+
+Unsere nächste Station liegt ein Stück bergauf, an der Kreuzung **Seminarstraße/Unterer Fauler Pelz** **[17]**. Ursprünglich hieß die Kettengasse Alt Lawergaß, weil sich hier die älteste Ansiedlung der Lohgerber (»lawer«) befand. Nach dem Bau der Mauer zogen die Gerber weiter nördlich direkt an den Neckar, damit die beißenden Gerüche ihrer Abwässer nicht durch die Stadt geleitet werden mussten. An der Stelle ihrer Häuser an der Kettengasse erbaute man den pfalzgräflichen Marstall- den Vorgängerbau des heutigen Marstalls am Neckar. Zurück blieb der ehemalige Stadtgraben, der auf dem Merian-Stich gut sichtbar ist. Eine kleine treppenartige Brücke führte über den Graben zur höher gelegenen südlichen Seite. Die Herkunft der noch heute gängigen Benennung der Gegend als »Fauler Pelz: ist umstritten: Die Bezeichnung mag auf die übel riechenden Abwässer der Gerber zurückgehen, die aufgrund des wasserundurchlässigen Tonbodens an der Oberfläche blieben und erst an der Kettengasse Richtung Neckar fließen konnten. Möglich ist aber auch, dass der Begriff »Pelz« auf später an dieser Stelle angelegte Obstgärten hinweist (das mittelhochdeutsche Wort »pelzen« bedeutet »Obstbäume veredeln.). 
+
+> **Der Schlossberg**
+> 
+> Das Kettentor trennte die Altstadt vom Schlossberg. Dessen Bewohner, vor allem Burg- und Hofgesinde des Pfalzgrafen, waren Teil der sogenannten Burgfreiheit. Sie unterstanden nicht dem Heidelberger Stadtrat, sondern ihrem Dienstherren, dem Pfalzgrafen. Innerhalb der Stadt bildete der Schlossberg damit rechtlich und administrativ einen eigenständigen Bereich: Seine Bewohner hatten einen eigenen Bürgermeister und ein eigenes Gericht. Zudem waren die Schlossbergbewohner von städtischen Steuern befreit, mussten dafür dem Pfalzgrafen jedoch Frondienste leisten (etwa Krankenpflege, Botendienste, Hilfe in der Küche und bei der Wache sowie bei Baumaßnahmen). Mit der Verlegung der Residenz nach Mannheim begann der Niedergang des Bezirks. Der Schlossberg wurde dann 1743 offiziell Teil der Stadt Heidelberg. 
+
+*Blick auf den »Faulen Pelz« mit dem Stadtgraben, im Vordergrund das Kettentor, im Merian-Stich von 1620*
+
+Vom Kettentor verlief die Stadtmauer hinter dem heutigen Gebäude Seminarstraße 3 (Romanisches Seminar der Universität) her in einer geraden Linie zum Hexenturm. Wir folgen dem Straßenverlauf der **Seminarstraße** **[18]** bis zum Hexenturm und haben damit die Grenzen der hochmittelalterlichen Stadt abgeschritten. Von der hier verlaufenden südlichen Stadtmauer schloss noch eine Mauer im rechten Winkel die Talsohle bis zum Berghang ab. Ihre Reste wurden 2003 bei einer archäologischen Grabung entdeckt und bilden nun in der Garage eines Neubaus mit gläserner Fassade die linke Seitenwand.
+
+*Das Keltertor am Aufgang des Schlossbergs, das Ende des 19. Jahrhunderts abgerissen wurde*
+
+Weitere Reste dieser Mauer birgt heute die Ausfahrt des **Schlossberg-Tunnels** **[19]** an der Friedrich Ebert-Anlage (hinter Grabengasse 11). Nach dem Bau des Tunnels wurden vermutlich Bruchstücke der alten Stadtmauer in die seitliche Verkleidung eingebaut. Um sie zu sehen, gehen wir von der Seminarstraße links die Grabengasse hoch - die Tunneleinfahrt befindet sich nun linker Hand. Einen guten Blick darauf hat man vom Parkplatz auf der gegenüberliegenden Straßenseite. Hier, bergaufwärts, zwischen dem heutigen **Schlossberg 3 und 4** **[20]** lag auch das Keltertor. Es bildete den Abschluss dieser Quermauer und öffnete einen weiteren Zugang zum Schlossberg. Seinen Namen bekam es durch das ehemals hier gelegene Kelterhaus der pfalzgräflichen Hofkellerei (dessen Schlussstein von 1555 sich heute im Kurpfälzischen Museum befindet). Das Tor wurde vermutlich 1877 oder 1881 zusammen mit der Hofkellerei abgerissen, um die Auffahrt zum Schlossberg zu erweitern. 1999 konnten die Fundamente des Totes archäologisch nachgewiesen werden. 
+
+Unser Rundgang hat gezeigt, wie klein die Ausmaße einer hochmittelalterlichen Stadt aus heutiger Sicht waren. Heidelberg im Hochmittelalter umfasste nur etwa die Hälfte des Gebietes, das heute als Altstadt bekannt ist: Die Stadtmauer war weniger als zwei Kilometer lang und umfasste etwa 20 Hektar dicht bebauten Gebiets. Der moderne Eindruck täuscht jedoch, da die Stadt im 13. Jahrhundert durchaus großzügig angelegt und im Vergleich zu anderen Städten keinesfalls klein war. Ihre Gründung darf als Erfolg gelten: Bald schon war die Stadt für die wachsende Bevölkerung zu klein. An die Kern-Altstadt schloss sich die Erweiterung nach Westen an. Auf die Reise durch diese Neustadt führt der nächste Rundgang. 
+
+
+> **Zum Author**
+>
+> Dr. Christoph Mauntel arbeitet und forscht seit 2010 am Historischen Seminar der Universität Heidel1 berg und am Exzellenzcluster »Asien und Europa im globalen Kontext« zur mittelalterlichen Geschichte. 
