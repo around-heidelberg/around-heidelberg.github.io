@@ -15,6 +15,7 @@
 
 ![](./images/hauptbild.png)
 
+```geojson
 {
   "type": "FeatureCollection",
   "features": [	
@@ -174,3 +175,4 @@
     }
   ]
 }
+```
