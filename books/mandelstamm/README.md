@@ -22,7 +22,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Студент"
+          "chapter": "Студент",
           "name": "Дом Мандельштама"
         },
         "geometry": {
@@ -33,7 +33,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Город"
+          "chapter": "Город",
           "name": "Дом Бородина"
         },
         "geometry": {
@@ -44,7 +44,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Город"
+          "chapter": "Город",
           "name": "Пироговская читальня до 1905г."
         },
         "geometry": {
@@ -55,7 +55,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Город"
+          "chapter": "Город",
           "name": "Отель Руссише хоф на Леопольдштрассе, 35, где звучали главным образом сообщения о научных интересах"
         },
         "geometry": {
@@ -66,7 +66,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Город"
+          "chapter": "Город",
           "name": "Институт славистики"
         },
         "geometry": {
@@ -77,7 +77,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Университет"
+          "chapter": "Университет",
           "name": "Дом, где жила Софья Ковалевская"
         },
         "geometry": {
@@ -88,7 +88,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Университет"
+          "chapter": "Университет",
           "name": "Аула"
         },
         "geometry": {
@@ -99,7 +99,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Студент"
+          "chapter": "Студент",
           "name": "Ризенштайнвег из окна Мандельштама"
         },
         "geometry": {
@@ -110,7 +110,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Студент"
+          "chapter": "Студент",
           "name": "Дом, где жил Степун первые годы"
         },
         "geometry": {
@@ -121,7 +121,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Студент"
+          "chapter": "Студент",
           "name": "Дом, где жил Степун последние годы"
         },
         "geometry": {
@@ -132,7 +132,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Студент"
+          "chapter": "Студент",
           "name": "Место, где выставлялась античная коллекция"
         },
         "geometry": {
@@ -143,7 +143,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Студент"
+          "chapter": "Студент",
           "name": "Университетская библиотека"
         },
         "geometry": {
@@ -154,7 +154,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Поэт"
+          "chapter": "Поэт",
           "name": "Зеленый мох и влажный камень"
         },
         "geometry": {
@@ -165,7 +165,7 @@
     {
         "type": "Feature",
         "properties": {
-          "chapter": "Поэт"
+          "chapter": "Поэт",
           "name": "Дом Штейнбергов"
         },
         "geometry": {
