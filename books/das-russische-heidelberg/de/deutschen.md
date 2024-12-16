@@ -55,39 +55,18 @@ Was Modestov und Stepun schildern, ist die Aussöhnung des liberalen deutschen B
 In einem russischen Studienführer aus dem Jahre 1907 heißt es über die deutschen Universitäten: "Da der Zustrom der russischen Studenten in den letzten Jahren sehr groß ist, wird die Zulassung mit jedem Jahr mehr erschwert". Bei der Auflistung der einzelnen Universitäten kommt dann Heidelberg/Gejdel’berg (aufgrund der russischen Buchstabenabfolge: a, b, v, g ...) unmittelbar hinter Berlin und Bonn. Bei den beiden preußischen Hochschulen heißt es: "Deutsche Staatsangehörige werden bevorzugt". Für Heidelberg gibt es keine einschränkenden Bemerkungen, sondern eine überaus einladende Formulierung: "Frauen werden gleichberechtigt mit Männern aufgenommen" (Gol'din, 6).
 
 
-[^1]: In der Festschrift zum siebzigsten Geburtstag des
-Heidelberger Zoologen und Anatomen Carl Gegenbaur (Leipzig
-1896/97) finden sich Aufsätze von M. Davydov, imm. in Ph. SS
-1876-WS 1878/79, und N. Goronovid, imm. in Med. SS 1883-
-WS 1883/84.
-[^2]: Hermann Schapira (1840-1898), imm. in Ph. WS 1878/79-
-WS 1880/81 (A), seit 1887 Professor für Mathematik in
-Heidelberg (D).
-[^3]: Vladimir Timofeeviö Sevjakov (1859-1930), imm. in Ph. SS 4
-1885-WS 1888/89 (A).
-[^4]: Lev Zachar'evi& Morochovec (1848-1919), imm. in Med. WS
-1872/73-SS 1876 (A).
-[^5]: Wilhelm Kühne (1837-1900), 1871-1900 Professor für
-Physiologie (D).
-[^6]: Der Theologe Carl Bernhard Hundeshagen (1801-1872) war
-1860 Prorektor (D).
+[^1]: In der Festschrift zum siebzigsten Geburtstag des Heidelberger Zoologen und Anatomen Carl Gegenbaur (Leipzig 1896/97) finden sich Aufsätze von M. Davydov, imm. in Ph. SS 1876-WS 1878/79, und N. Goronovid, imm. in Med. SS 1883-WS 1883/84.
+[^2]: Hermann Schapira (1840-1898), imm. in Ph. WS 1878/79-WS 1880/81 (A), seit 1887 Professor für Mathematik in Heidelberg (D). 
+[^3]: Vladimir Timofeeviö Sevjakov (1859-1930), imm. in Ph. SS 4 1885-WS 1888/89 (A).
+[^4]: Lev Zachar'evi& Morochovec (1848-1919), imm. in Med. WS 1872/73-SS 1876 (A).
+[^5]: Wilhelm Kühne (1837-1900), 1871-1900 Professor für Physiologie (D).
+[^6]: Der Theologe Carl Bernhard Hundeshagen (1801-1872) war 1860 Prorektor (D).
 [^7]: Vasilij Zacepin, imm. in Ph. WS 1880/81-SS 1882 (A).
 [^8]: nicht identifiziert
 [^9]: Jakov Gercenstein, imm. in Med. WS 1880/81-SS 1881 (A).
-[^10]: Großherzog Friedrich (1826-1907) war seit 1856 mit der
-Prinzessin Luise, einer Tochter des damaligen Prinzen Wilhelm
-von Preußen, des späteren Kaiser Wilhelm I., verheiratet.
-[^11]: christian Felix Baehr (1798-1872), seit 1821 Professor für
-klassische Philologie in Heidelberg (D).
-[^12]: Hermann Köchly (1815-1876), seit 1864 Professor für
-klassische Philologie in Heidelberg (D).
-[^13]: Wilhelm Ihne (1821-1902), seit 1873 Professor für englische
-Philologie in Heidelberg (D).
-[^14]: Johann Caspar Bluntschli (1808-1881), seit 1861 Prof. für
-Staatsrecht in Heidelberg (D).
-[^15]: Stepun spielt hier auf den Artikel des russischen Publizisten
-V.F. Ern «Ot Kanta k Kruppu» (Von Kant zu Krupp) an, der im
-Dezember 1914 in der Zeitschrift «Russkaja mysl'» erschienen
-war und in dem allerdings die These vertreten wurde, daß von
-der Philosophie Kants ein gerader Weg zu dem modernen
-preußischen Militarismus führe (Scherrer).
+[^10]: Großherzog Friedrich (1826-1907) war seit 1856 mit der Prinzessin Luise, einer Tochter des damaligen Prinzen Wilhelm von Preußen, des späteren Kaiser Wilhelm I., verheiratet.
+[^11]: christian Felix Baehr (1798-1872), seit 1821 Professor für klassische Philologie in Heidelberg (D).
+[^12]: Hermann Köchly (1815-1876), seit 1864 Professor für klassische Philologie in Heidelberg (D).
+[^13]: Wilhelm Ihne (1821-1902), seit 1873 Professor für englische Philologie in Heidelberg (D).
+[^14]: Johann Caspar Bluntschli (1808-1881), seit 1861 Prof. für Staatsrecht in Heidelberg (D).
+[^15]: Stepun spielt hier auf den Artikel des russischen Publizisten V.F. Ern «Ot Kanta k Kruppu» (Von Kant zu Krupp) an, der im Dezember 1914 in der Zeitschrift «Russkaja mysl'» erschienen war und in dem allerdings die These vertreten wurde, daß von der Philosophie Kants ein gerader Weg zu dem modernen preußischen Militarismus führe (Scherrer).

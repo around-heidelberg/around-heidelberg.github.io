@@ -12,3 +12,7 @@
 * [Секреты Хайдельберга](./books/heidelberger-geheimnisse/README.md). Ева Мария Баст, Хайке Тиссен. 2018.
 * [Осип Мандельштам в Гейдельберге](./books/mandelstamm/README.md) Павел Нерлер. 1994.
 * [Русский Хайдельберг](./books/das-russische-heidelberg/README.md) Вилли Биркенмайер. 1995.
+
+## Туры
+
+1. [Пробный тур](./tours/probe.md)

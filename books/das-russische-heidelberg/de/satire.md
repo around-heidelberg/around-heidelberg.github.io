@@ -254,10 +254,6 @@ Wer hier eine imaginäre Prinzessin anredet, steh auf der Ziegelhäuser Seite de
 
 
 [^1]: Sergej I. Metal'nikov, imm. in Nat. SS 1895 (A).
-[^2]: Moisej Matveevi& Rubinstejn, imm. in Ph. WS 1903/04; 1910
-erschien in Moskau seine Übersetzung von Windelbands Werk
-«Die Philosophie im deutschen Geistesleben des 19. Jahrhunderts» (1909).
-[^3]: «Heidelberger Tagblatt» vom 11. Februar 1907, S. 8, zitiert
-bei Wischhöfer.
-[^4]: Die Übersetzungen der Gedichte "Deutscher Wald"
-"Rheinfahrt” und "Insel" stammen von Elfriede Wischhöfer.
+[^2]: Moisej Matveevi& Rubinstejn, imm. in Ph. WS 1903/04; 1910 erschien in Moskau seine Übersetzung von Windelbands Werk «Die Philosophie im deutschen Geistesleben des 19. Jahrhunderts» (1909).
+[^3]: «Heidelberger Tagblatt» vom 11. Februar 1907, S. 8, zitiert bei Wischhöfer.
+[^4]: Die Übersetzungen der Gedichte "Deutscher Wald", "Rheinfahrt” und "Insel" stammen von Elfriede Wischhöfer.
