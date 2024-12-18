@@ -13,6 +13,11 @@
 * [Осип Мандельштам в Гейдельберге](./books/mandelstamm/README.md) Павел Нерлер. 1994.
 * [Русский Хайдельберг](./books/das-russische-heidelberg/README.md) Вилли Биркенмайер. 1995.
 
+## Люди:
+
+* [Йозеф фон Эйхендорф](./people/eichendorff.md)
+* [Иван Сергеевич Аксаков](./people/aksakov.md)
+
 ## Туры
 
 1. [Пробный тур](./tours/probe.md)
