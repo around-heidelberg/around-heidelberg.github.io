@@ -12,6 +12,7 @@ Das Residenzschloss bot den Fürsten und ihrem Hof den architektonischen Rahmen 
 > Mit der Bergbahn: von der Station am Kornmarkt zwischen April und Oktober täglich von 9 bis etwa 20 Uhr, zwischen November und März täglich von 9 bis etwa 17 Uhr (kostenpflichtig).
 
 **Stationen** (Rundgang: circa 1/2 Stunden)
+
 **[1]** Scheffelterrasse
 
 **[2]** bis **[4]** Halsgraben, mittelalterliche Ringmauer und »Ostwall« (Balustrade an der Südostecke des Schlossgrabens)
@@ -59,8 +60,7 @@ Den geeignetsten Ausgangspunkt für einen Rundgang zur Baugeschichte des Schloss
 
 Wir gehen die Scheffelterrasse zum Schloss zurück. Wenn wir nun auf den gesprengten Turm an der Südostecke des Schlosses zuschreiten, blicken wir über die Balustrade der Hauptterrasse in den alten **Halsgraben** **[2]**. Tief in den Fels geschrotet, schnitt er die Burg vom Berghang ab. 
 
-Wir bewegen uns nun wenige Schritte zurück auf die Rasenfläche und nehmen den **Ostwall** **[3]** zwischen den beiden Ecktürmen - dem gesprengten Krautturm im Süden und dem Glockenturm im Norden - in den Blick: Mit dem dazwischen gestellten, später sogenannten, Apothekerturm bilden sie den am stärksten befestigten Abschnitt der Ringmauer. Allerdings täuscht das heutige Erscheinungsbild über den Zustand im späten 15.Jahrhundert: Nur der Krautturm war als hohes, gegen den Berg gerichtetes Eckbollwerk ausgebildet. An beiden Türmen markiert jeweils das Mauerwerk aus großformatigen Buntsandsteinquadern die ursprünglich niedrige Anlage. Sie ragten als Vorbauten nicht wesentlich über die Ringmauer, die mit einer schussfesten Hinterfüllung aus Erdreich für die Aufstellung schwerer Artillerie eingerichtet war. Alle anderen Bauteile sind erst später auf- oder eingesetzt worden. Eindrucksvoll abzulesen ist das an den palastartig durchfensterten
-oberen Abschnitten.
+Wir bewegen uns nun wenige Schritte zurück auf die Rasenfläche und nehmen den **Ostwall** **[3]** zwischen den beiden Ecktürmen - dem gesprengten Krautturm im Süden und dem Glockenturm im Norden - in den Blick: Mit dem dazwischen gestellten, später sogenannten, Apothekerturm bilden sie den am stärksten befestigten Abschnitt der Ringmauer. Allerdings täuscht das heutige Erscheinungsbild über den Zustand im späten 15.Jahrhundert: Nur der Krautturm war als hohes, gegen den Berg gerichtetes Eckbollwerk ausgebildet. An beiden Türmen markiert jeweils das Mauerwerk aus großformatigen Buntsandsteinquadern die ursprünglich niedrige Anlage. Sie ragten als Vorbauten nicht wesentlich über die Ringmauer, die mit einer schussfesten Hinterfüllung aus Erdreich für die Aufstellung schwerer Artillerie eingerichtet war. Alle anderen Bauteile sind erst später auf- oder eingesetzt worden. Eindrucksvoll abzulesen ist das an den palastartig durchfensterten oberen Abschnitten.
 
 *Das Schloss im Kurpfälzischen Skizzenbuch aus dem frühen 17. Jahrhundert: links der Halsgraben mit dem unüberdachten Krautturm an der südöstlichen Ecke, rechts daneben der niedrige Apothekerturm*
 
